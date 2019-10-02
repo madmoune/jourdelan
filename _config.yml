@@ -1,3 +1,13 @@
 theme: jekyll-theme-cayman
 title: Jour de l'An
 description: Rétrospective du Jour de l'An 2011-2020
+- title: About
+  url: /about.html
+- title: Team
+  url: /team.html
+- title: Contact
+  url: /contact.html
+- title: Store
+  url: /store.html
+- title: Support
+  url: /support.html
