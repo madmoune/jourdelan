@@ -26,7 +26,9 @@ Mais à votre place, je ne compterais pas trop là-dessus!
 
 Par contre, pour ne pas rendre nos derniers jours trop déprimants, j’aimerais qu’on agisse comme si de rien n’était. Pour ce faire, j’ai préparé un site internet sur lequel on retrouvera toutes les informations nécessaires pour le party!
 
-http://lejourdelanchezmouneetkaro.wordpress.com/
+```
+Le site n'existe plus, mais les informations pertinentes se retrouvent à la fin du texte
+```
 
 Présentement, on retrouve un horaire approximatif de l’évènement, ainsi que trois onglets dans lesquels vous pouvez indiquer :
 - Votre présence le 30 / 31
@@ -56,3 +58,17 @@ Pour plus d'information sur les Mayos, un onglet sur le site est présent pour r
 Au plaisir, bande de bro!
 
 PS: JG, j'ai pas le couriel de ta blonde, rajoute-là.
+
+### Informations pertinentes qu'on retrouvait sur le site
+- [La Civilisation Mayo](jdl2013_civilisationmayo.md)
+- [Prédiction #1: Échange de cadeau](jdl2013_prediction1.md)
+- [Prédiction #2: Habillement](jdl2013_prediction2.md)
+- Prédiction #3: La prédiction fut perdue, mais elle consistait à pouvoir prendre des photos sur son téléphone et les envoyés sur la télé.
+- [Prédiction #4: Tournoi de Crutchball](jdl2013_prediction4.md)
+- [Prédiction #5: Stand à Drink](jdl2013_prediction5.md)
+- [Prédiction #6: Musiqueziquezique](jdl2013_prediction6.md)
+- [Prédiction #7: Tâches à réaliser](jdl2013_prediction7.md)
+
+### Suite à la lecture de l'invitation, Léanne fit le commentaire suivant à Moune
+
+J'aimerais ça savoir comment ça fonctionne dans ta tête.
