@@ -9,7 +9,7 @@ Bonne lecture!
 ## Archive
 
 ### Jour de l'An 2011
-Le JDL2011 fut la première édition de l'événement. Présenté à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans:
+Le JDL2011 fut la première édition de l'événement. Présentée à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans:
 - Habillement chic
 - Événement sur deux jours
 - Partie de hockey le 30 en après-midi
@@ -33,7 +33,7 @@ On se souviendra de 2011 comme étant l'année où:
 Vous retrouverez ici l'[invitation de 2011](jdl2011_invitation.md).
 
 ### Jour de l'an 2012
-2012 marque l'apparition du concours de dégustation de vin
+En 2012, toujours pas de thème établi. On compte sur l'enthousiasme des gens pour mettre de l'ambiance, ce qui a porté fruit l'année précédente! Cette année marque l'apparition du concours de dégustation de vin, proposée par Karol-Ann, dont les problèmes d'alcool commencèrent dans ces dates-là.
 
 #### Fun Facts
 - Il semble que 2011 fusse l'année où on a commencé à se mettre du ketchup su'l chest, une tradition qui se perdit en 2012.
