@@ -2,7 +2,7 @@
 
 Vous retrouverez ici toutes les informations pertinentes à l'organisation de votre Jour de l'An ainsi que les archives concernant les dix dernières années. 
 
-Bonne Lecture!
+Bonne lecture!
 
 ## Comment faire un bon Jour de l'An
 
