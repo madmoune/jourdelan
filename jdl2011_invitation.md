@@ -1,8 +1,7 @@
 ## Invitation 2011
  
-L'invitation de 2011 fut envoyée par courriel le 1 novembre 2010. 
+### L'invitation de 2011 fut envoyée par courriel le 1 novembre 2010. 
 
-```markdown
 Bonjour à tous,
 
 2012 arrive à grands pas et comme vous le savez, nous devons préalablement survivre à 2011 avant d'avoir l'honneur de voir de nos propres yeux la fin du monde telle que prédite par les (osti de) Mayas. Pour nous aider à relever ce défi que sera 2011, j'aimerais vous inviter à fêter la fin de l'année de marde que fut 2010, ainsi que l'arrivée de l'année de marde que sera 2011, ensemble, chez nous, le 31 décembre.
@@ -23,8 +22,8 @@ Donc, pensez-y, commencer à chercher pour un thème, des idées d'activité (Fr
 
 Vous pouvez transférer le message aux gens dont je n'ai pas l'adresse : Blonde à Ray (Femme, dis-je), Blonde à Frank, Blonde à Max, Blonde à Seb.
 
-```diff
-- Note: 10 ans plus tard, je confirme connaître le nom de ces dites blondes!
+```markdown
+Note: 10 ans plus tard, je confirme connaître le nom de ces dites blondes!
 ```
 
 Si vous pensez que d'autre gens devraient être invité et ne l'on pas été, faites-moi signe!
@@ -35,7 +34,9 @@ J'imagine que plusieurs d'entre vous on des activités de famille autour du 30, 
 
 Dites-moi ce que vous en pensez, si vous êtes plusieurs à vouloir venir deux jours, ça serait vraiment trippant!
 
-(Note: trrrrrrrrrrrrrrrrrrrrrippant!)
+```markdown
+Note: trrrrrrrrrrrrrrrrrrrrrippant!
+```
 
 Pensez à ça et on s'en reparle!
 
