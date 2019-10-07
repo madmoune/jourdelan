@@ -42,4 +42,58 @@ Pensez à ça et on s'en reparle!
 
 Ciao bye.
 Moune
+
+### Une suite à l'invitation fut envoyé le 10 novembre 2011
+
+Rebonjour,
+
+Pour ceux que je viens d'ajouter à la liste de email de ce message, j'ai mis le message original dans le bas. Bonne lecture à Jean-Gab, LC et Femme à Ray (C'est comme une femme à barbe, mais avec Ray!).
+
+D'ailleurs, avant de poursuivre, j'aimerais avoir les adresses email de Blonde à JG et Blonde à LC pour les ajouter à la liste.
+
+Donc, moi et Karo avons déjà commencé un peu à regarder comment on allait déployer la maison afin de rendre notre défonçage d'année des plus plaisants. Voici ce que je vois en gros, sans vous donner trop de détails afin de garder la surprise!
+- Piste de danse" modeste, mais pouvant accueillir des danseurs de grade "profane" et "avant-gardiste".
+- Une pièce à Wii/PS3/Rock band
+- Une pièce avec une table permettant la dégustation d'aliment et le partage d'opinion "avant-gardiste". Par contre, je suis en négociation avec karo à savoir si cette pièce accueillera ou non le souper principal!
+
+```markdown
+Note: Tout ça est très "avant-gardiste"
 ```
+
+Donc, regardez ça et dites-moi si vous avez des (bonnes) idées afin d'agrémenter la soirée encore plus.
+
+Ensuite, faites-vous une playlist sur votre ipod/lecteur mp3/clé usb, on pourra diffuser la musique sur la "piste de danse" avec ma console et mes speakers qui seront réellement trop gros pour la soirée. J'ai pas de musique pour danser, donc amenez la votre. De la musique avec de l'allure sera diffusé dans la salle à "partage d'opinion".
+
+Aussi, visualisez la maison et pensez à des décorations pour la soirée. Au rez-de-chaussée, mais aussi dans la cave. On a un sapin, pour votre information. Vous pouvez partager vos idées de décorations avec Karol-Ann Dupont (karolanndupont@hotmail.com), parce qu'il parait qu'y'é pas question que je décore quoi que ce soit.
+
+Pensez aussi à ce que vous voulez manger, qu'on se ramasse pas juste avec 435 pains gumbos et une bûche de Noël le 31.
+
+Pour le thème, à date la meilleure suggestion est venue de Karol-Ann Dupont (karolanndupont@hotmail.com), avec un thème juste chic, robe pour mesdames et bobettes propres pour messieurs. Si vous pensez pouvoir faire une meilleure suggestion, faites-là, sinon, mangez d'la croute.
+
+Donc voilà, tranquillement on commence à travailler fort sur cette soirée de notre côté. J'ai un peu trop hâte d'ailleurs. Il reste juste 50 dodos avant le 30 décembre!
+
+Distinguées salutations,
+
+Moune
+
+### Le 12 novembre 2011, Max Laroche y alla du meilleur commentaire de l'échange de courriels.
+
+(mise en contexte, Karo avait proposé un thème année 80)
+
+Personnellement...
+ 
+Le thème chic me semble le plus simple. J'ai pas trop le goût d'aller au Village des Valeurs au mois de décembre pour acheter du linge pas beau que je ne porterai plus jamais et qui servira probablement de combustible pour un poêle à bois. Au risque de faire le pire des chialeux (donc de voler le titre acquis durement par Étienne), l'Halloween une fois par année ça me suffit. En même temps, si on veut un party qui coûte pas cher et qui nous permet d'être confortable, allons-y pour que tout le monde soit tout nu! Simple, économique, efficace et original.
+ 
+Le thème serait donc « Le malaise ». Et Karo pourrait avoir une banderole «Princesse Péteux Slak».
+ 
+J'imagine déjà de belles situations loufoques, telles que :
+ 
+- «Veux-tu ben te tasser des crevettes à cocktail, on pourrait se tromper!»
+- « J'veux bien croire que c'est des petits pains fourrés, mais faut pas exagérer là.»
+- « Voudriez-vous tu de ma salade crémeuse?»
+- « Bâtard qu'il y a du poil dans cette soupe là! »
+- « Veux-tu goûter à mon pogo? »
+- « Je pensais pas que "défoncer la nouvelle année" me ferait aussi mal.»
+
+
+Max
