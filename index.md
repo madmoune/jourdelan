@@ -4,7 +4,7 @@ Test Jour de l'an.
 
 Menu
 
-[Jour de l'An 2011](https://github.com/madmoune/jourdelan/edit/master/jdl2011_invitation.md)
+[Jour de l'An 2011](jdl2011_invitation.md)
 
 
   
