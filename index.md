@@ -1,18 +1,11 @@
-{% assign menu = page.navigation %}
-<ul class="{{ menu.class }}">
-{% for item in menu.items %}
-  <li class="{{ item.class }}">
-    <a href="{{ item.link }}" class="{{ item.link_class }}">{{ item.title }}</a>
-  </li>
-{% endfor %}
-</ul>
-
-
 ## Welcome to GitHub Pages
 
 Test Jour de l'an.
 
 Menu
+
+[Jour de l'An 2011](jdl2011_invitation.md)
+
 
   
 You can use the [editor on GitHub](https://github.com/madmoune/jourdelan/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
