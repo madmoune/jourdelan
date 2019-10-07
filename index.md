@@ -40,6 +40,9 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 #### Fun Facts
 - Il semble que 2011 fusse l'année où on a commencé à se mettre du ketchup su'l chest, une tradition qui se perdit en 2012.
 - Le 29 décembre 2012, un avertissement d'entrée de maison glacée fut envoyé. Comme quoi déjà à l'époque Moune n'était déjà pas un fervent déneigeur.
+- On se souviendra que les shooters de glace n'étaient pas un franc succès.
+- Cette année-là, Moune acheta le célèbre toutou de bacon qui disait "I'm Bacon". 20$ de shipping et 15$ de douanes plus tard, Seb le gagna et le crissa sans cérémonie dans son garde-robe, là où il ne vit plus jamais le jour.
+- La légende dit qu'une bouteille trop très forte circula en 2012.
 
 #### Lien utiles
 
@@ -48,22 +51,29 @@ Vous retrouverez ici l'[invitation de 2012](jdl2012_invitation.md).
 ### Jour de l'an 2013 (3ième édition)
 On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré ce qu'en disait les Mayas. Cette grande chance fut l'inspiration du tout premier thème officiel: Les Mayos! Pour l'occasion un courriel d'invitation fut envoyé et ce fut également le début des sites internets créés pour le jour de l'an. Bien que les sites n'existent plus, vous en trouverez le contenu en ces pages.
 
+Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jour de l'Ans d'aujourd'hui. Entre autre, c'est cette année-là que le premier tournoi du Jour de l'An eu lieu. On parle ici du tournoi de Crutchball, qui fut remporté par Etienne, et non Jérémie. Il va de soit que c'est en 2013 que le trophée du Jour de l'An fut inauguré!
 
+Également
 
 #### Fun Facts
-- Il semble que 2011 fusse l'année où on a commencé à se mettre du ketchup su'l chest, une tradition qui se perdit en 2012.
-- Le 29 décembre 2012, un avertissement d'entrée de maison glacée fut envoyé. Comme quoi déjà à l'époque Moune n'était déjà pas un fervent déneigeur.
-- De Janvier 2012 à Décembre 2012, à tous les premiers du mois, Moune envoya cette année-là un décompte sur les mois restants avant le jour de l'an 2013.
-- Entre le 1er novembre et le 30 décembre, 5 prédictions du prophète Hellmann furent faite directement sur le site internet du JDL2013.
-- Les participants furent invités à faire leurs propres prédictions. Voici les meilleures:
--- Il va y avoir des chests partout (Moune)
--- Au moins la moitié des gense vont avoir quelque chose dans leur culotte (Gaby)
--- Étienne va vraiment être désagréable (Etienne)
--- Moune sera proche de ses émotions après 3 verres (Freud)
--- Moune sera proche de ses émotions après 2 verres (Freud 2)
--- Karo va encore nous parler de comment elle aime le Beaujolais (SAQ)
--- M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
--- Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
+- En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors-pair.
+- Le tournoi de Crutchball fut un bon moment pour tous, sauf pour tous ceux qui se sont luxé l'épaule.
+- Comme prémisse au JDL2013, un courriel fut envoyé à chaque mois afin de faire le décompte des mois restant avant l'événement.
+- En plus de l'invitation, fut dévoilé aux participants entre le 1er novembre et le 30 décembre 7 prédictions provenant du prophète Hellmann!
+- Les plus nostalgiques se rappelleront que depuis 2011, Grooveshark était le DJ officiel du JDL. RIP Buddy.
+- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peut peuvent se vanter d'avoir terminé!
+- Cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé. On se souviendra surtout d'une habile tentative de tricherie à ce niveau-là!
+
+#### Prédiction des participants
+Les participants furent invités à faire leurs propres prédictions. Voici les meilleures:
+- Il va y avoir des chests partout (Moune)
+- Au moins la moitié des gense vont avoir quelque chose dans leur culotte (Gaby)
+- Étienne va vraiment être désagréable (Etienne)
+- Moune sera proche de ses émotions après 3 verres (Freud)
+- Moune sera proche de ses émotions après 2 verres (Freud 2)
+- Karo va encore nous parler de comment elle aime le Beaujolais (SAQ)
+- M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
+- Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
 
 #### Lien utiles
 
@@ -71,4 +81,10 @@ Vous retrouverez ici l'[invitation de 2013](jdl2013_invitation.md).
 
 Également, des textes informatifs:
 - [La Civilisation Mayo](jdl2013_civilisationmayo.md)
-- 
+- [Prédiction #1: Échange de cadeau](jdl2013_prediction1.md)
+- [Prédiction #2: Habillement](jdl2013_prediction2.md)
+- Prédiction #3: La prédiction fut perdue, mais elle consistait à pouvoir prendre des photos sur son téléphone et les envoyés sur la télé.
+- [Prédiction #4: Tournoi de Crutchball](jdl2013_prediction4.md)
+- [Prédiction #5: Stand à Drink](jdl2013_prediction5.md)
+- [Prédiction #6: Musiqueziquezique](jdl2013_prediction6.md)
+- [Prédiction #7: Tâches à réaliser](jdl2013_prediction7.md)
