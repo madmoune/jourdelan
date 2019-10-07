@@ -9,13 +9,13 @@ Bonne lecture!
 ## Archive
 
 ### Jour de l'An 2011
-Le JDL2011 fut la première édition de l'événement. Présenté à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans
+Le JDL2011 fut la première édition de l'événement. Présenté à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans:
 - Habillement chic
 - Événement sur deux jours
 - Partie de hockey le 30 en après-midi
 - Échange de cadeaux
 
-Une invitation fut envoyée le 1 novembre, date à laquelle toutes les invitations subséquentes furent aussi envoyés. 
+Une invitation fut envoyée le 1 novembre, date à laquelle toutes les invitations subséquentes furent aussi envoyées. 
 
 ### Lien utiles
 
