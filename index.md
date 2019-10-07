@@ -1,16 +1,28 @@
-## Welcome to GitHub Pages
+## Bienvenue sur le site officiel du Jour de L'an
 
-Test Jour de l'an.
+Vous retrouverez ici toutes les informations pertinentes à l'organisation de votre Jour de l'An ainsi que les archives concernant les dix dernières années. 
 
-Menu
+Bonne Lecture!
 
-[Jour de l'An 2011](jdl2011_invitation.md)
+## Comment faire un bon Jour de l'An
+
+## Archive
+
+### Jour de l'An 2011
+Le JDL2011 fut la première édition de l'événement. Présenté à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans
+- Habillement chic
+- Événement sur deux jours
+- Partie de hockey le 30 en après-midi
+- Échange de cadeaux
+
+Une invitation fut envoyée le 1 novembre, date à laquelle toutes les invitations subséquentes furent aussi envoyés. 
+
+### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2011](jdl2011_invitation.md).
 
 
-  
-You can use the [editor on GitHub](https://github.com/madmoune/jourdelan/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
