@@ -52,7 +52,7 @@ Pour ceux que je viens d'ajouter à la liste de email de ce message, j'ai mis le
 D'ailleurs, avant de poursuivre, j'aimerais avoir les adresses email de Blonde à JG et Blonde à LC pour les ajouter à la liste.
 
 Donc, moi et Karo avons déjà commencé un peu à regarder comment on allait déployer la maison afin de rendre notre défonçage d'année des plus plaisants. Voici ce que je vois en gros, sans vous donner trop de détails afin de garder la surprise!
-- Piste de danse" modeste, mais pouvant accueillir des danseurs de grade "profane" et "avant-gardiste".
+- "Piste de danse" modeste, mais pouvant accueillir des danseurs de grade "profane" et "avant-gardiste".
 - Une pièce à Wii/PS3/Rock band
 - Une pièce avec une table permettant la dégustation d'aliment et le partage d'opinion "avant-gardiste". Par contre, je suis en négociation avec karo à savoir si cette pièce accueillera ou non le souper principal!
 
@@ -88,7 +88,7 @@ Le thème serait donc « Le malaise ». Et Karo pourrait avoir une banderole «P
  
 J'imagine déjà de belles situations loufoques, telles que :
  
-- «Veux-tu ben te tasser des crevettes à cocktail, on pourrait se tromper!»
+- « Veux-tu ben te tasser des crevettes à cocktail, on pourrait se tromper!»
 - « J'veux bien croire que c'est des petits pains fourrés, mais faut pas exagérer là.»
 - « Voudriez-vous tu de ma salade crémeuse?»
 - « Bâtard qu'il y a du poil dans cette soupe là! »
