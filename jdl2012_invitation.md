@@ -2,9 +2,9 @@
 
 ### L'invitation de 2012 fut envoyée par courriel le 1 novembre 2011. 
 
-*Distinguées salutations à tous les bros,
+*Distinguées salutations à tous les bros,*
 
-Eh oui ! Novembre déjà! Cela fait maintenant 10 mois que notre dernière rencontre de festivité du nouvel an s’est conclue.*
+*Eh oui ! Novembre déjà! Cela fait maintenant 10 mois que notre dernière rencontre de festivité du nouvel an s’est conclue.*
 
 **LOL U MAD!?!**
 
@@ -84,3 +84,7 @@ PS. Ça fait dix mois que j’ai hâte qu’on organise ça. Faite le calcul!
 ```markdown
 Note: Super *cheesy*
 ```
+### Le 5 décembre, quelques règles furent établies pour l'échange de cadeaux
+- Pas de soldat en plastique
+- Faites dont en sorte que votre cadeau ne soit pas identifiable avant d'être déballé... genre une bouteille de vin, ça serait le fun que ça ressemble pas à une bouteille de vin!
+- PAS DE SOLDAT EN PLASTIQUE
