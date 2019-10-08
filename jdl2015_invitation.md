@@ -63,7 +63,7 @@ Parce que nous sommes de vieux désagréables et que notre ouïe commence à fai
 
 ***Le jour de l'HEEENNN?***
 
-![jdl2015_img_invitation5](jdl2015_img_invitation6.png)
+![jdl2015_img_invitation5](images/jdl2015_img_invitation6.png)
 
 Venez fêter avec nous et nos résidents en vous rendant sur notre site internet : 
 
