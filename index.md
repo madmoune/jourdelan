@@ -6,6 +6,7 @@ Bonne lecture!
 
 ## Comment faire un bon Jour de l'An
 
+---
 ## Archive
 
 ### Jour de l'An 2011 (1ere édition)
@@ -32,6 +33,7 @@ On se souviendra de 2011 comme étant l'année où:
 
 Vous retrouverez ici l'[invitation de 2011](jdl2011_invitation.md).
 
+---
 ### Jour de l'an 2012 (2ième édition)
 En 2012, toujours pas de thème établi. On compte sur l'enthousiasme des gens pour mettre de l'ambiance, ce qui a porté fruit l'année précédente! Cette année marque l'apparition du concours de dégustation de vin, proposée par Karol-Ann, dont les problèmes d'alcool commencèrent dans ces dates-là.
 
@@ -48,6 +50,7 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 
 Vous retrouverez ici l'[invitation de 2012](jdl2012_invitation.md).
 
+---
 ### Jour de l'an 2013 (3ième édition)
 On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré ce qu'en disait les Mayas. Cette grande chance fut l'inspiration du tout premier thème officiel: Les Mayos! Pour l'occasion un courriel d'invitation fut envoyé et ce fut également le début des sites internets créés pour le jour de l'an. Bien que les sites n'existent plus, vous en trouverez le contenu en ces pages.
 
@@ -89,12 +92,13 @@ Les participants furent invités à faire leurs propres prédictions. Voici les 
 - M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
 - Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
 
+---
 ### Jour de l'an 2014 (4ième édition)
-2014 marque une autre grande étape dans le développement de l'invitation du Jour de l'An. Ayant pour thème Les Jourdelanpiques, l'événement verra apparaître encore quelques classiques qu'on reconnait encore aujourd'hui. Tout d'abord, instauration du Quiz Pré-JDL, un jeu d'association où les résultats sont toujours sous la note de passage, dont le gagnant se mérite un point bonus à la dégustation de vin. 
+2014 marque une autre grande étape dans le développement de l'invitation du Jour de l'An. Inspiré des Jeux Olympiques de Sotchi, le thème Les Jourdelanpiques est choisi. L'événement verra apparaître encore quelques classiques qu'on reconnait toujours aujourd'hui. Tout d'abord, instauration du Quiz Pré-JDL, un jeu d'association où les résultats sont toujours sous la note de passage, dont le gagnant se mérite un point bonus à la dégustation de vin. 
 
 D'ailleurs, ladite dégustation de vin offre maintenant au vainqueur de séjourner dans la chambre d'amis pour la durée du JDL, un prix qui vaut son pesant d'or, ou pas!
 
-Le photobooth fait son apparition au JDL2014, avec ceux qui deviendront ses alliés de toujours, les tatouages temporaires! 
+Le photobooth fait aussi son apparition au JDL2014, avec ceux qui deviendront ses alliés de toujours, les tatouages temporaires! 
 
 #### Fun Facts
 - C'est cette année-là que Maxime Dupont vécu une grande déception: aucun fromage sur sa poutine de chez Roy et Diane.
@@ -111,3 +115,16 @@ Les participants avaient la chance de proposer un sport de démonstration qu'ils
 - La neige synchronisée (Michel)
 - Le 100 mètres jeans baissées (LC)
 - Gosser Laroche (Etienne)
+
+---
+### Jour de l'an 2015 (5ième édition)
+Voyant la crise de la trentaine approchée à grand pas, Moune s'en inspire en 2014 afin de choisir le thème Le Jour de l'HENNN? C'est dans l'ambiance d'une maison de retraite qu'il recevra les gens cette année-là.
+
+Peu de gens le remarquère à l'époque, mais plusieurs courriels préparatoire furent envoyés avant le 1 novembre 2014. Dans la lignée du "Peux-tu deviner le thème" de l'année précédente, 4 messages sont envoyés afin de faire la promotion du thème de 2015. [Vous pouvez les consulter ici](jdl2015_courriels.md).
+
+#### Fun Facts
+- 
+
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2015](jdl2015_invitation.md).
