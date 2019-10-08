@@ -94,13 +94,20 @@ Les participants furent invités à faire leurs propres prédictions. Voici les 
 
 D'ailleurs, ladite dégustation de vin offre maintenant au vainqueur de séjourner dans la chambre d'amis pour la durée du JDL, un prix qui vaut son pesant d'or, ou pas!
 
-
-
-Deviner le thème.
+Le photobooth fait son apparition au JDL2014, avec ceux qui deviendront ses alliés de toujours, les tatouages temporaires! 
 
 #### Fun Facts
-- 
+- C'est cette année-là que Maxime Dupont vécu une grande déception: aucun fromage sur sa poutine de chez Roy et Diane.
+- Lors du quiz, les participants devaient créer un pays fictif. Le pays de Jean-Gabriel? Le Kazakhstan. Même pas foutu d'inventer un pays qui existe pas!
+- C'était peut-être à cause de leur trop grandes jambes ou de leur consommation d'alcool, quoiqu'il en soit, LC et MC ont défoncé la porte du garde-manger lors de la soirée du 31.
 
 #### Lien utiles
 
 Vous retrouverez ici l'[invitation de 2014](jdl2014_invitation.md).
+
+#### Proposition de sports de démonstration
+Les participants avaient la chance de proposer un sport de démonstration qu'ils aimeraient voir apparaître aux Olympiques. Voici les meilleurs:
+- Ketchup su'l Chestathlon (Moune)
+- La neige synchronisée (Michel)
+- Le 100 mètres jeans baissées (LC)
+- Gosser Laroche (Etienne)
