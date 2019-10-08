@@ -2,7 +2,7 @@
 
 ### Le 30 Octobre 2013, comme préambule à l'invitation de 2014, un petit jeu fut envoyé demandant aux gens de deviner le thème à partir de l'image suivante.
 
-![olympiques](https://raw.githubusercontent.com/madmoune/jourdelan/master/thumbnail_Olympiques%20beer%20pong%208%2C5%20x%2011.jpg)
+![olympiques](images/jdl2014_img_beerpong.jpg)
 
 ### L'invitation de 2013 fut envoyée par courriel le 1 novembre 2013. 
 
@@ -46,12 +46,12 @@ Et c’est pourquoi j’ai pensé à vous! Pour la première édition des Jours 
 
 Afin de bien expliquer tout le déroulement des Jours Delanpiques et d’en saisir l’esprit dans son entièreté, en voici les grandes lignes.
 
-![https://lesjoursdelanpiques.files.wordpress.com/2013/10/olympique.png](https://lesjoursdelanpiques.files.wordpress.com/2013/10/olympique.png)
+![https://lesjoursdelanpiques.files.wordpress.com/2013/10/olympique.png](images/jdl2014_img_olympiques.png)
 
 ~~PLUS VITE, PLUS HAUT, PLUS FORT~~
 
 
-![olympiques](https://raw.githubusercontent.com/madmoune/jourdelan/master/thumbnail_Olympiques%20beer%20pong%208%2C5%20x%2011.jpg)
+![olympiques](images/jdl2014_img_beerpong.jpg)
 
 PLUS VITE, PLUS CHAUD, PLUS DE FORT
 
