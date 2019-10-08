@@ -20,7 +20,7 @@ Soyons honnêtes, on est tous de plus en plus comme la vieille jument...
 
 On est pu c'qu'on a déjà été...
 
-![jdl2015_img_invitation1](jdl2015_img_invitation1.png)
+![jdl2015_img_invitation1](images/jdl2015_img_invitation1.png)
 [https://www.youtube.com/watch?v=7xlTF2Uv4Bs](https://www.youtube.com/watch?v=7xlTF2Uv4Bs)
 
 C'est pourquoi Karo et moi nous sommes dit que tant qu'à devenir des vieux câlisses, aussi bien se tenir avec des vieux câlisses (et être payés pour)! Ça peut sembler une idée saugrenue à première vue, mais ne jugez pas trop vite. Pour bien comprendre notre point, regardons à quoi nos soirées entre amis ressemblent dernièrement :
@@ -36,10 +36,10 @@ Il faut se rendre à l'évidence, on vieillit, on achève, nos meilleures année
 
 On est maintenant plus dans le style :
 
-![jdl2015_img_invitation2](jdl2015_img_invitation2.png)
-![jdl2015_img_invitation3](jdl2015_img_invitation3.png)
-![jdl2015_img_invitation4](jdl2015_img_invitation4.png)
-![jdl2015_img_invitation5](jdl2015_img_invitation5.png)
+![jdl2015_img_invitation2](images/jdl2015_img_invitation2.png)
+![jdl2015_img_invitation3](images/jdl2015_img_invitation3.png)
+![jdl2015_img_invitation4](images/jdl2015_img_invitation4.png)
+![jdl2015_img_invitation5](images/jdl2015_img_invitation5.png)
 
 Je sais, je sais, c'est difficile à accepter. J'arrive aujourd'hui et je vous annonce que vos meilleures années sont déjà passées. Que non seulement votre vie d'adulte est bien entamée, mais qu'elle vous entraine dans la spirale infernale des jeux de mots plates, des soirées à écouter les nouvelles à TVA et du désespoir de constater que vous trouvez Éric Salvail ben swell...
 
@@ -63,7 +63,7 @@ Parce que nous sommes de vieux désagréables et que notre ouïe commence à fai
 
 ***Le jour de l'HEEENNN?***
 
-![jdl2015_img_invitation5](jdl2015_img_invitation6.png)
+![jdl2015_img_invitation5](images/jdl2015_img_invitation6.png)
 
 Venez fêter avec nous et nos résidents en vous rendant sur notre site internet : 
 
