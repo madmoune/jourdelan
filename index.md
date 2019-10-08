@@ -42,7 +42,7 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 - Le 29 décembre 2012, un avertissement d'entrée de maison glacée fut envoyé. Comme quoi déjà à l'époque Moune n'était déjà pas un fervent déneigeur.
 - On se souviendra que les shooters de glace n'étaient pas un franc succès.
 - Cette année-là, Moune acheta le célèbre toutou de bacon qui disait "I'm Bacon". 20$ de shipping et 15$ de douanes plus tard, Seb le gagna et le crissa sans cérémonie dans son garde-robe, là où il ne vit plus jamais le jour.
-- La légende dit qu'une bouteille trop très forte circula en 2012.
+- La légende dit qu'une bouteille d'eau très forte circula en 2012.
 
 #### Lien utiles
 
@@ -53,7 +53,7 @@ On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré c
 
 Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jour de l'Ans d'aujourd'hui. Entre autre, c'est cette année-là que le premier tournoi du Jour de l'An eu lieu. On parle ici du tournoi de Crutchball, qui fut remporté par Etienne, et non Jérémie. Il va de soit que c'est en 2013 que le trophée du Jour de l'An fut inauguré!
 
-Également
+2013 fut également l'année avec le plus de décoration au Jour de l'An. La raison étant bien simple, le party de job de Moune ayant exactement le même thème, il a volé la moitié des décorations là-bas.
 
 #### Fun Facts
 - En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors-pair.
@@ -61,19 +61,8 @@ Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jou
 - Comme prémisse au JDL2013, un courriel fut envoyé à chaque mois afin de faire le décompte des mois restant avant l'événement.
 - En plus de l'invitation, fut dévoilé aux participants entre le 1er novembre et le 30 décembre 7 prédictions provenant du prophète Hellmann!
 - Les plus nostalgiques se rappelleront que depuis 2011, Grooveshark était le DJ officiel du JDL. RIP Buddy.
-- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peut peuvent se vanter d'avoir terminé!
+- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peu peuvent se vanter d'avoir terminé!
 - Cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé. On se souviendra surtout d'une habile tentative de tricherie à ce niveau-là!
-
-#### Prédiction des participants
-Les participants furent invités à faire leurs propres prédictions. Voici les meilleures:
-- Il va y avoir des chests partout (Moune)
-- Au moins la moitié des gense vont avoir quelque chose dans leur culotte (Gaby)
-- Étienne va vraiment être désagréable (Etienne)
-- Moune sera proche de ses émotions après 3 verres (Freud)
-- Moune sera proche de ses émotions après 2 verres (Freud 2)
-- Karo va encore nous parler de comment elle aime le Beaujolais (SAQ)
-- M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
-- Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
 
 #### Lien utiles
 
@@ -88,3 +77,30 @@ Vous retrouverez ici l'[invitation de 2013](jdl2013_invitation.md).
 - [Prédiction #5: Stand à Drink](jdl2013_prediction5.md)
 - [Prédiction #6: Musiqueziquezique](jdl2013_prediction6.md)
 - [Prédiction #7: Tâches à réaliser](jdl2013_prediction7.md)
+
+#### Prédiction des participants
+Les participants furent invités à faire leurs propres prédictions. Voici les meilleures:
+- Il va y avoir des chests partout (Moune)
+- Au moins la moitié des gense vont avoir quelque chose dans leur culotte (Gaby)
+- Étienne va vraiment être désagréable (Etienne)
+- Moune sera proche de ses émotions après 3 verres (Freud)
+- Moune sera proche de ses émotions après 2 verres (Freud 2)
+- Karo va encore nous parler de comment elle aime le Beaujolais (SAQ)
+- M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
+- Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
+
+### Jour de l'an 2014 (4ième édition)
+2014 marque une autre grande étape dans le développement de l'invitation du Jour de l'An. Ayant pour thème Les Jourdelanpiques, l'événement verra apparaître encore quelques classiques qu'on reconnait encore aujourd'hui. Tout d'abord, instauration du Quiz Pré-JDL, un jeu d'association où les résultats sont toujours sous la note de passage, dont le gagnant se mérite un point bonus à la dégustation de vin. 
+
+D'ailleurs, ladite dégustation de vin offre maintenant au vainqueur de séjourner dans la chambre d'amis pour la durée du JDL, un prix qui vaut son pesant d'or, ou pas!
+
+
+
+Deviner le thème.
+
+#### Fun Facts
+- 
+
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2014](jdl2014_invitation.md).
