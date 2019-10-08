@@ -118,13 +118,29 @@ Les participants avaient la chance de proposer un sport de démonstration qu'ils
 
 ---
 ### Jour de l'an 2015 (5ième édition)
-Voyant la crise de la trentaine approchée à grand pas, Moune s'en inspire en 2014 afin de choisir le thème Le Jour de l'HENNN? C'est dans l'ambiance d'une maison de retraite qu'il recevra les gens cette année-là.
+Voyant la crise de la trentaine approchée à grand pas, Moune s'en inspire en 2014 afin de choisir le thème Le Jour de l'HEEENNN? C'est dans l'ambiance d'une maison de retraite qu'il recevra les gens cette année-là.
 
 Peu de gens le remarquère à l'époque, mais plusieurs courriels préparatoire furent envoyés avant le 1 novembre 2014. Dans la lignée du "Peux-tu deviner le thème" de l'année précédente, 4 messages sont envoyés afin de faire la promotion du thème de 2015. [Vous pouvez les consulter ici](jdl2015_courriels.md).
 
+Le Tournoi Coeur d'Enfant est la compétition officielle de ce JDL. Un des tournois préférés de Moune, particulièrement l'épreuve d'identification des émissions jeunesses. On ose croire que les gens ont eu autant de plaisir à le faire que Moune à le créer.
+
+
 #### Fun Facts
-- 
+- C'est cette année-là que fut lancée l'idée de veiller jusqu'au lever du soleil. Qu'elle criss d'idée de marde.
 
 #### Lien utiles
 
 Vous retrouverez ici l'[invitation de 2015](jdl2015_invitation.md).
+
+---
+### Jour de l'an 2016 (6ième édition)
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le Mariage de Yolande et Roger. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, afin de respecter la tradition. 
+
+Rendu à la 6ième édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
+
+
+#### Fun Facts
+- 
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2016](jdl2016_invitation.md).
