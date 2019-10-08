@@ -55,8 +55,6 @@ Afin de bien expliquer tout le déroulement des Jours Delanpiques et d’en sais
 
 PLUS VITE, PLUS CHAUD, PLUS DE FORT
 
-–
-
 #### PRÉSIDENT D’HONNEUR
 
 La première édition des Jours Delanpiques est fière d’avoir comme président d’honneur, nul autre que le [Baron Pierre De Coubertin, rénovateur des Jeux olympiques de l’ère moderne!](https://fr.wikipedia.org/wiki/Pierre_de_Coubertin)
@@ -131,21 +129,21 @@ Pour le buffet, les délégations sont conviées d’amener **un plat typique de
 
 Voici un **horaire approximatif des compétitions de la soirée du 31**. Comme tous bons Jeux olympiques, les compétitions de bases doivent être jouées et elles le seront! Cependant, elles ont été ajustées en fonction des Jours Delanpiques. Voici la [liste des compétitions officielles](https://fr.wikipedia.org/wiki/Jeux_olympiques_d%27hiver#Disciplines_sportives_actuelles) accompagnées de leur penchant jourdelanpique :
 
-– 17h00 : Biathlon / Bièreathlon
-– 18h00 : Combiné nordique / Combiné de viande froide nordique
-– 19h00 : Patinage artistique / Potinage artistique
-– 20h00 : Luge / Tequiluge Bang Bang
-– 21h00 : Patinage de vitesse sur courte piste / Patinage de vitesse sur courte piste de danse
-– 22h00 : Hockey sur glace / Le hockey va déjà avoir été joué le 30, mais ça se peut qu’on prenne une couple de SHOTS quand même
-– 23h00 : Ski alpin / Ski alpinte de bière
-– 00h00 : Patinage de vitesse / Patinage « d’eau de vie »tesse
-– 01h00 : Bobsleigh / Lichi bombsleigh
-– 02h00 : Ski acrobatique / Whiskey acrobatique
+- 17h00 : Biathlon / Bièreathlon
+- 18h00 : Combiné nordique / Combiné de viande froide nordique
+- 19h00 : Patinage artistique / Potinage artistique
+- 20h00 : Luge / Tequiluge Bang Bang
+- 21h00 : Patinage de vitesse sur courte piste / Patinage de vitesse sur courte piste de danse
+- 22h00 : Hockey sur glace / Le hockey va déjà avoir été joué le 30, mais ça se peut qu’on prenne une couple de SHOTS quand même
+- 23h00 : Ski alpin / Ski alpinte de bière
+- 00h00 : Patinage de vitesse / Patinage « d’eau de vie »tesse
+- 01h00 : Bobsleigh / Lichi bombsleigh
+- 02h00 : Ski acrobatique / Whiskey acrobatique
 - 03h00 : Skeleton / Où Sk’el es’ton drink?
-– 04h00 : Curling / Mal de Coeurling
-– 05h00 : Snowboard / Sn’au bord’de vomir
-– 06h00 : Saut à ski / Sceau à ski ressort de ton estomac
-– 07h00 : Ski de fond / Ski de fond de tonne
+- 04h00 : Curling / Mal de Coeurling
+- 05h00 : Snowboard / Sn’au bord’de vomir
+- 06h00 : Saut à ski / Sceau à ski ressort de ton estomac
+- 07h00 : Ski de fond / Ski de fond de tonne
 
 ***Avertissement***
 
@@ -238,7 +236,7 @@ Nous espérons une grande participation à cette première édition des Jours De
 
 Si vous avez des questions pour le comité organisateur, vous pouvez les poser sur la FAQ, ou encore par e-mail.
 
-##FAQ
+## FAQ
 
 Si vous avez des questions pour le comité organisateur, vous pouvez les mettre en commentaire ici, ou les envoyer par e-mail.
 
