@@ -1,6 +1,6 @@
 ## La Civilisation Mayo
 
-![Hellmann](https://lesjoursdelanpiques.files.wordpress.com/2012/10/mayo-hellmann.png)
+![Hellmann](images/jdl2013_img_mayo.png)
 
 La **civilisation Mayo** est une ancienne civilisation du **Centre-du-Québec**, principalement connue pour ses avancées dans les domaines des **liqueurs alcoolisées**, des **buffets**, des **troques d’offrandes**, des **compétitions**, du **gambling** et des **photos numériques**. C’est une des civilisations précareypricienne les plus étudiées avec celles des Maya, des Aztèques et des Incas.
 
