@@ -1,15 +1,15 @@
-## Bienvenue sur le site officiel du Jour de L'an
+## Histoire du Jour de l'An 101
 
-Vous retrouverez ici toutes les informations pertinentes à l'organisation de votre Jour de l'An ainsi que les archives concernant les dix dernières années. 
+Cette page rassemble les éléments nécéssaire à votre apprentissage du *Jour de l'An*. Toutes informations spécifiées sur ce site est sujette à examen.
 
-Bonne lecture!
+## Théorie du Jour de l'An
 
-## Comment faire un bon Jour de l'An
+Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous familiariser avec les éléments de bases avant de poursuivre avec les lectures obligatoires.
 
 ---
-## Archive
+## Lectures Obligatoire
 
-### Jour de l'An 2011 (1ere édition)
+### 1er Novembre 2019: Jour de l'An 2011 (1ere édition)
 Le JDL2011 fut la première édition de l'événement. Présentée à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans:
 - Habillement chic
 - Événement sur deux jours
