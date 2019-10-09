@@ -153,3 +153,9 @@ Pour toutes questions, [référez-vous à la FAQ](jdl2017_sw_faq.md).
 Au plaisir de vous voir et **VIVA ANARCHE GUEVARA**!
 
 ![images/jdl2017_img_po1.png](images/jdl2017_img_po1.png)
+
+## Autres pages:
+- [Portes ouvertes](jdl2016_sw_po.md]
+- [FAQ](jdl2016_sw_faq.md]
+- [Films pour enfants](jdl2016_sw_films.md]
+- [Dessins du Grand Moumou](jdl2016_sw_moumou.md]
