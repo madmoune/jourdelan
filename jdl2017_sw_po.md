@@ -155,6 +155,7 @@ Au plaisir de vous voir et **VIVA ANARCHE GUEVARA**!
 ![images/jdl2017_img_po1.png](images/jdl2017_img_po1.png)
 
 ## Autres pages:
+- [Accueil](jdl2017_sw_accueil.md)
 - [FAQ](jdl2017_sw_faq.md])
 - [Films pour enfants](jdl2017_sw_films.md])
 - [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
