@@ -1,4 +1,4 @@
-##FAQ
+## FAQ
 
 **FAQ**, **F**aut **A**mener **Q**uoi?
 
