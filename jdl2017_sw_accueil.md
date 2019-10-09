@@ -72,7 +72,7 @@ En ce qui concerne les activités, nous ne réinventons pas la roue! Rien de mie
 Nous offrons aussi divers films, mais pas seulement pour le divertissement. Ce sont des films créés pour les enfants, dans le but de préparer leur esprit au moment où ils affronteront le danger. Voyez la section suivante afin de voir toute notre sélection.
 
 ## Autres pages:
-- [Portes ouvertes](jdl2017_sw_po.md]
-- [FAQ](jdl2017_sw_faq.md]
-- [Films pour enfants](jdl2017_sw_films.md]
-- [Dessins du Grand Moumou](jdl2017_sw_moumou.md]
+- [Portes ouvertes](jdl2017_sw_po.md])
+- [FAQ](jdl2017_sw_faq.md])
+- [Films pour enfants](jdl2017_sw_films.md])
+- [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
