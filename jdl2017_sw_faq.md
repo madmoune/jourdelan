@@ -34,6 +34,6 @@ On en connait très peu sur le Grand Moumou, mais on sait qu’il veille sur nou
 Si vous avez des questions, laissez un commentaire en bas, où écrivez-moi!
 
 ## Autres pages:
-- [Portes ouvertes](jdl2017_sw_po.md]
-- [Films pour enfants](jdl2017_sw_films.md]
-- [Dessins du Grand Moumou](jdl2017_sw_moumou.md]
+- [Portes ouvertes](jdl2017_sw_po.md])
+- [Films pour enfants](jdl2017_sw_films.md])
+- [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
