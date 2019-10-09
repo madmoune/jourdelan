@@ -285,4 +285,4 @@ Prenez note qu’on déterminera le couple gagnant par un vote du public lors d�
 
 On se voit le 30 Décembre tout le monde!
 
-Pour vous assurer d’avoir tout ce qu’il faut pour le mariage, consulter la section [FAQ](jdl2016_faq)!
+Pour vous assurer d’avoir tout ce qu’il faut pour le mariage, consulter la section [FAQ](jdl2016_faq.md)!
