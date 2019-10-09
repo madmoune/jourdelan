@@ -22,7 +22,6 @@
 ![images/jdl2017_img_film1.jpg](images/jdl2017_img_film20.png)
 
 ## Autres pages:
-- [Portes ouvertes](jdl2016_sw_po.md]
-- [FAQ](jdl2016_sw_faq.md]
-- [Films pour enfants](jdl2016_sw_films.md]
-- [Dessins du Grand Moumou](jdl2016_sw_moumou.md]
+- [Portes ouvertes](jdl2017_sw_po.md]
+- [FAQ](jdl2017_sw_faq.md]
+- [Dessins du Grand Moumou](jdl2017_sw_moumou.md]
