@@ -170,3 +170,33 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
 #### Lien utiles
 
 Vous retrouverez ici l'[invitation de 2017](jdl2017_invitation.md).
+
+---
+### Jour de l'an 2018 (8ième édition)
+Après plusieurs années à présenter le thème par un site internet, changement de direction en 2017. Une page facebook est créée afin de faciliter les communications. Le courriel d'invitation du 1 novembre se lit d'ailleurs comme suit:
+
+    C'T'ANNÉE ON L'FAIT SU FACEBOOK! YESSERS!
+    
+De la poésie.
+
+Un thème salon du livre
+
+#### Fun Facts
+- Une quantité limitée de personnes ont compris qu'ils fallaient offrir un livre pendant le cadeau d'échange.
+
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2018](jdl2018_invitation.md).
+
+---
+### Jour de l'an 2019 (9ième édition)
+
+Après une année sous le signe de la culture littéraire, 2019 alla vers un penchant plus télévisuel!
+
+#### Fun Facts
+- Une quantité limitée de personnes ont compris qu'ils fallaient offrir un livre pendant le cadeau d'échange.
+
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2019](jdl2019_invitation.md).
+
