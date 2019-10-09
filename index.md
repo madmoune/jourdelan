@@ -71,7 +71,7 @@ Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jou
 
 Vous retrouverez ici l'[invitation de 2013](jdl2013_invitation.md).
 
-Également, des textes informatifs:
+#### Site internet
 - [La Civilisation Mayo](jdl2013_civilisationmayo.md)
 - [Prédiction #1: Échange de cadeau](jdl2013_prediction1.md)
 - [Prédiction #2: Habillement](jdl2013_prediction2.md)
@@ -127,6 +127,7 @@ Le Tournoi Coeur d'Enfant est la compétition officielle de ce JDL. Un des tourn
 
 #### Fun Facts
 - C'est cette année-là que fut lancée l'idée de veiller jusqu'au lever du soleil. Qu'elle criss d'idée de marde.
+- Après des performances inspirées de Frank, Geneviève, Laurie et Stéphanie, ce fut le tour de Seb d'être magané en maudit. Être couché avant le décompte de la nouvelle année, faut le faire, on lui lève notre chapeau.
 
 #### Lien utiles
 
@@ -134,13 +135,38 @@ Vous retrouverez ici l'[invitation de 2015](jdl2015_invitation.md).
 
 ---
 ### Jour de l'an 2016 (6ième édition)
-Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le Mariage de Yolande et Roger. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, afin de respecter la tradition. 
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, afin de respecter la tradition. 
 
 Rendu à la 6ième édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
+
+Avec un thème rendant hommage à l'amour, il allait de soit que ça prenait un un site de rencontre! Ce fut donc le thème du préquiz, [disponible ici](jdl2016_quiz.md).
+
+#### Fun Facts
+- Le tapis rouge d'OD a fait une apparition lors de la sélection des équipes pour le tournoi Oréo & Joliette. Il est ensuite retourné dans la salle de bain du sous-sol.
+- Un *shitload* de bagues étaient disponbiles afin de demander la main de nos ami(e)s, dans la plus grande tradition de la Polygamoune.
+- Cette année-là, un concours de photo du photobooth fut organisé. Le gagnants furent Vincent et Maxime qui reçurent une voiture (miniature)!
+
+#### Lien utiles
+
+Vous retrouverez ici l'[invitation de 2016](jdl2016_invitation.md).
+
+
+---
+### Jour de l'an 2017 (7ième édition)
+Devant la quantité d'enfants qui prolifèrent devant nos yeux, il allait de soit qu'une thématique *garderie* voit le jour! Mais pas n'importe quelle garderie, non! Celle de l'enfant de plusieurs d'entre-nous, avec une *twist* de théorie du complot. Rien de mieux!
+
+Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du quiz nous perturbent encore à ce jour](jdl2017_sw_moumou.md])), cette édition présenta un site web beaucoup trop intense:
+
+- [Accueil](jdl2017_sw_accueil.md)
+- [Portes ouvertes](jdl2017_sw_po.md])
+- [FAQ](jdl2017_sw_faq.md])
+- [Films pour enfants](jdl2017_sw_films.md])
+- [Films pour enfants](jdl2017_sw_moumou.md])
 
 
 #### Fun Facts
 - 
+
 #### Lien utiles
 
-Vous retrouverez ici l'[invitation de 2016](jdl2016_invitation.md).
+Vous retrouverez ici l'[invitation de 2017](jdl2017_invitation.md).
