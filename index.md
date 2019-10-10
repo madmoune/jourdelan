@@ -2,7 +2,7 @@
 
 Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site est sujette à examen.
 
-Le but de ce cours est d'expérimenter et de comprendre l'emsemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'Ans*.
+Le but de ce cours est d'expérimenter et de comprendre l'emsemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'Ans**.
 
 ## Plans de Cours
 
