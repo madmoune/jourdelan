@@ -1,6 +1,6 @@
 ## Théorie du Jour de l'An
 
-Ce document présente les éléments et constituants importants des plus grands **Jour de l'An** de l'histoire. Ces principes de bases sont essentiels à la compréhension et à l'étude de l'histoire des **Jour de l'Ans**.
+Ce document présente les éléments et constituants importants des plus grands **Jour de l'Ans** de l'histoire. Ces principes de bases sont essentiels à la compréhension et à l'étude de l'histoire des **Jour de l'Ans**.
 
 ### Composantes et Constituants
 
