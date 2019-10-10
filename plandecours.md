@@ -123,3 +123,18 @@ Seront présentes:
 
 ##### Pause : Décompte et voeux de bonnes années
 
+Une petite intéruption lors de la soirée sera de mise aux alentours de 23h59m50s, alors que l'ensemble des étudiants pourront célébrer l'arrivée de la nouvelle année tous ensemble! Suivant la tradition, les minutes suivantes serviront à se souhaiter tout plein de belles affaires! Lesdites minutes peuvent parfois devenir des heures, tout dépendant des participants impliqués.
+
+Dr. Moune vous montrera dix trucs pour finir rapidement ses souhaits. Le 7ième va vous faire tomber en bas de votre 4Loko.
+
+#### Fin de la fête et remise des diplômes
+
+***Heure***: à partir de 4h00
+
+Les plus vaillants étudiants étant toujours debouts pourront faire leur bonne action de l'année en offrant leur aide pour le ménage. Ils se verront par la même occasion donner une franche tape dans le dos en guise de remerciement, ce qui est selon nous la plus haute forme de respect. 
+
+Le matin venu, diplôme (ou non) en main, les étudiants pourront repartir le coeur léger et/ou légerèrement sur la flotte.
+
+#### Conclusion
+
+Nous espérons de tout coeur vous voir réussir votre examen et apprécier l'expérience que procure un **Jour de l'An**. Dans le cas où vous échoueriez, ne vous en faites pas, nous donnons le cours à chaque année, même endroit, même date. La légende dit même que certains étudiants aiment tellement l'événement qu'ils échouent volontairement l'examen afin de pouvoir revenir année après année...
