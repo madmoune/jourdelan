@@ -1,6 +1,6 @@
 ## Histoire du Jour de l'An 101
 
-Cette page rassemble les éléments nécéssaire à votre apprentissage du *Jour de l'An*. Toutes informations spécifiées sur ce site est sujette à examen.
+Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site est sujette à examen.
 
 ## Théorie du Jour de l'An
 
