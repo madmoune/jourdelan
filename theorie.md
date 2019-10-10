@@ -26,7 +26,7 @@ Une bonne invitation se doit de contenir de savoureux jeux de mots, vous trouver
 
 #### Date et Durée
 
-Les dates du **Jour de l'An* varient très peu. Elles sont toujours du 30 décembre au 1er janvier, la seule variable étant l'année qui change à chaque année.
+Les dates du **Jour de l'An** varient très peu. Elles sont toujours du 30 décembre au 1er janvier, la seule variable étant l'année qui change à chaque année.
 
 Au tout début, les participants demeuraient sur place du début à la fin, mais de nos jours il n'est pas rare de voir des gens s'absenter quelques temps, pour cause de trop de sexe non-protégé.
 
@@ -66,24 +66,63 @@ Parfois thématique, parfois non, la dégustation de vin est un concours appréc
 
 ###### Tournoi
 
-Pillier du **Jour de l'An*, le tournoi annuel couronne chaque année une équipe gagnante dont le nom ne rime pas avec bon goût. La compétition varie en fonction du thème, allant de la compétition sportive au test mental. 
+Pillier du **Jour de l'An**, le tournoi annuel couronne chaque année une équipe gagnante dont le nom ne rime pas avec bon goût. La compétition varie en fonction du thème, allant de la compétition sportive au test mental. 
 
 Les deux dernières éditions ont eu un jeu d'évasion comme tournoi, ce qui a permis à tout le monde de voir très peu Moune le 30 au soir. Win-win qui disent.
 
+###### Trophée
 
-Activité
-  Hockey
-  Souper
-  Tournoi
-  Trophée
-  Dégustation de vin
-  Déjeuner
-  Potluck
-  Échange de cadeau
-  Photo de groupe
-  Décompte
-  Piste de danse
-  Beerpong
-  Photobooth
-  Bar
+Le trophée du **Jour de l'An** est remis chaque année aux vaincqueurs du tournoi. Ceux-ci se méritent de garder le-dit trophée en leur possession toute l'année et de *bragger non-stop* pendant douze mois. 
+
+On grave évidemment le nom des gagnants sur le trophée à chaque année pour la postérité.
+
+##### 31 décembre
+
+###### Déjeuner
+
+Le déjeuner du 31 décembre est synonyme de pains dorées à l'orange, de sirop d'érable et de café baileys. Il est toujours préparé et servi par Maxime et Vincent, autrement cela porte malchance.
+
+###### Divertissement
+
+La journée du 31 est généralement assez tranquille, afin de garder le niveau d'énergie haut pour la soirée. Des jeux de société ou des jeux vidéos sont habituellement les moyens employés afin de passer le temps. La préparation du buffet et de l'habillement chic peut également se faire vers la fin de ce moment.
+
+###### Potluck
+
+Le repas du soir est assuré par chacun des participants. Chaque couple présents préparent un élément du buffet afin d'avoir le meilleur *potluck* possible. Les mots *pas de bon sens*, *c'est ben trop* et *j'ai mal au coeur* sont souvent employés à ce moment de la journée.
+
+On considère le *potluck* un succès lorsque les gens n'ont pas pu goûter à tout et qu'ils n'ont plus faim. Sauf si Etienne a mangé toutes les crevettes avant que les autres aient eu le temps d'y goûter.
+
+###### Échange de cadeau
+
+Un rassemblement du temps des fêtes ne serait rien sans un échange de cadeau. À chaque année, les participants amènent un cadeau d'une valeur de **25$** afin de participer à cette activité des plus plaisainte. Ce moment de la soirée est particulièrement appricié, sauf lorsque des *estis* de cadeaux de marde sont offerts. Ce qui arrive quand même souvent.
+
+###### Photo de groupe
+
+La photo de groupe est un des éléments essentiels du **Jour de l'An**. Elle permet de nous rappeler tous les gens qui étaient présents, mais surtout, elle permet à Moune de la mettre comme photo de couverture sur *facebook* afin de prouver qu'il a des amis. 
+
+###### Décompte
+
+Comme le **Jour de l'An** concorde toujours avec le passage à la nouvelle année, un décompte affiché afin de ne pas manquer cet événement marquant. Au compte de zéro, tous les gens présents scandent "**BONNE ANNÉE!**", et s'ensuit des échanges de voeux durant entre 10 et 300 minutes.
+
+On notera une variation marquée dans l'émotion ressentie des différentes personnes. C'est quelque chose qu'on doit respecter. ***C'TU CLAIR??***
+
+###### Veillée jusqu'au matin
+
+L'après-décompte est libre à tous et plusieurs activités sont proposées. Tout d'abord, une piste de danse est disponible alors qu'une musique très *hip* joue en continue jusqu'à très tard. Ensuite, du *beerpong* se joue, avec plus ou moins de talent, mais avec beaucoup d'attitude. 
+
+La présence d'un *photobooth* et de tatouages temporaires est toujours un élément gagnant afin de rendre des souvenirs oubliables inoubliables.
+
+Un *bar* est aussi disponible, question de rendre les gens festifs encore plus festifs et de divertir les gens qui sont festifs, mais ajeuns.
+
+###### Fin de la fête
+
+Les derniers participants encore debouts tard le soir (ou tôt le matin) gagnent toujours le respect de leur pairs. Par contre, ils gagnent aussi la responsabilité de faire du ménage avant d'aller se coucher. C'est tout de même un faible prix à payer en échange de tout le plaisir qu'ils ont eu, et ça fait extrèmement plaisir aux propriétaires.
+
+### Conclusion
+
+Vous venez de lire les grandes lignes d'un **Jour de l'An**. Vous devriez maintenant être en mesure de comprendre le déroulement d'un tel événement, et peut-être même créer votre propre version (*please don't*).
+
+Toute la matière couverte dans cette page est sujette à être testée lors de votre examen pratique qui aura lieu du 30 décembre 2019 au 1er janvier 2020.
+
+Bonne étude.
   
