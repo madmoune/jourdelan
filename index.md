@@ -4,6 +4,10 @@ Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jou
 
 Le but de ce cours est d'expérimenter et de comprendre l'emsemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'Ans*.
 
+## Plans de Cours
+
+[Le plan de cours est disponible ici](plandecours.md). Nous vous invitons à vous familiariser avec celui-ci, il contient les informations importantes à la réussite de votre cours.
+
 ## Théorie du Jour de l'An
 
 Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous familiariser avec les éléments de bases avant de poursuivre avec les lectures obligatoires.
