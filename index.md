@@ -2,6 +2,8 @@
 
 Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site est sujette à examen.
 
+Le but de ce cours est d'expérimenter et de comprendre l'emsemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'Ans*.
+
 ## Théorie du Jour de l'An
 
 Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous familiariser avec les éléments de bases avant de poursuivre avec les lectures obligatoires.
@@ -10,6 +12,14 @@ Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous f
 ## Lectures Obligatoire
 
 ### 1er Novembre 2019: Jour de l'An 2011 (1ere édition)
+
+***Thème***: Aucun
+***Nom***: Aucun
+***Invitation***: [Vous retrouverez ici l'invitation de 2011.](jdl2011_invitation.md)
+***Quiz***: Aucun
+
+#### Informations pertinentes
+
 Le JDL2011 fut la première édition de l'événement. Présentée à St-Célestin, cette version pilote du rendez-vous ne possédait aucun thème en particulier, mais jetais les bases de différents concepts qui deviendraient des incontournables au fil des ans:
 - Habillement chic
 - Événement sur deux jours
@@ -18,20 +28,13 @@ Le JDL2011 fut la première édition de l'événement. Présentée à St-Célest
 - Le Potluck
 - Le déjeuner aux pains dorés préparé par Maxime
 
-Une invitation fut envoyée le 1 novembre, date à laquelle toutes les invitations subséquentes furent aussi envoyées. Tout le monde garde un doux souvenir de cette époque où on faisait *reply all* à chaque fois qu'on répondait à un email. 
-
-#### Fun Facts
+#### Faits
 
 On se souviendra de 2011 comme étant l'année où:
 - Frank a rendu hommage à la chanson Chop Suey de System of a Down
-- On croit que c'est également cette année-là où il tentait non-subtillement de remonter la robe à Laurie
+- Moune a passé la soirée du 30 à l'urgence et le 31 sur les anti-biotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldat en plastique que Michel s'est mérité. C'était le début des cadeaux de marde au JDL.
-- Moune a passé la soirée du 30 à l'urgence et le 31 sur les anti-biotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
-
-#### Lien utiles
-
-Vous retrouverez ici l'[invitation de 2011](jdl2011_invitation.md).
 
 ---
 ### Jour de l'an 2012 (2ième édition)
