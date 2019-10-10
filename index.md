@@ -18,8 +18,11 @@ Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous f
 ### 1er Novembre 2019: Jour de l'An 2011 (1ere édition)
 
 ***Thème***: Aucun
+
 ***Nom***: Aucun
+
 ***Invitation***: [Vous retrouverez ici l'invitation de 2011.](jdl2011_invitation.md)
+
 ***Quiz***: Aucun
 
 #### Informations pertinentes
