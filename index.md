@@ -213,6 +213,10 @@ Un thème salon du livre
 
 #### Fun Facts
 - Une quantité limitée de personnes ont compris qu'ils fallaient offrir un livre pendant le cadeau d'échange.
+- Invité vedette: Danné Vot'péter
+![images/jdl2018_img_dan.PNG](images/jdl2018_img_dan.PNG)
+- Une mise à jour du poème "Soir d'Hiver" d'Émile Nelligan avait été remis [au goût du jour](jdl2017_poeme.md).
+- Un [livre pour enfant avait également vu le jour lors de cette édition](jdl2018_livreenfant.md).
 
 #### Lien utiles
 
