@@ -60,6 +60,42 @@ Au plaisir, bande de bro!
 PS: JG, j'ai pas le couriel de ta blonde, rajoute-là.
 
 ### Informations pertinentes qu'on retrouvait sur le site
+
+#### Tout d'abord, l'accueil présentait le texte suivant
+
+Salutations Bro,
+
+Les Dieux ont parlé, les prophètes ont prédit et les oignons sont retournés dans leurs culottes.
+
+Si les (osti de) Mayas ont tort, alors nous pourrons vérifier de nos propres yeux la crédibilité des Mayos.
+
+Selon le culte Mayo, voici un horaire approximatif des 30, 31 décembre et 1ier janvier.
+
+##### DIMANCHE LE 30 DÉCEMBRE
+
+- Arrivée sur le lieu du culte en après-midi.
+- Vénération de la glace avec des patins et des bâtons.
+- Offrandes nutritives provenant de chez Roy et Diane.
+- Dégustation de vin de cérémonie.
+- Activité surprise. Compétition culte des Mayos.
+- Entrée en transe somnolente.
+
+##### LUNDI LE 31 DÉCEMBRE
+
+- Réveil de notre transe.
+- Manger du bon mangée de l’époque des Mayos.
+- Prière au Dieu des Plaisirs.
+- Préparation de notre buffet de sacrifices culinaires.
+- Dégustation des sacrifices culinaires.
+- Troc aléatoire des offrandes aux Dieux.
+- Activités diverses, toutes reliées au culte Mayo.
+
+##### MARDI LE 1ER JANVIER
+
+- Faire le ménage du lieu de la messe.
+- Prier jusqu’au premier novembre 2013 en espérant être invité au jour de l’an 2014.
+
+#### Autres informations:
 - [La Civilisation Mayo](jdl2013_civilisationmayo.md)
 - [Prédiction #1: Échange de cadeau](jdl2013_prediction1.md)
 - [Prédiction #2: Habillement](jdl2013_prediction2.md)
