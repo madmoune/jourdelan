@@ -116,6 +116,8 @@ D'ailleurs, ladite dégustation de vin offre maintenant au vainqueur de séjourn
 
 Le photobooth fait aussi son apparition au JDL2014, avec ceux qui deviendront ses alliés de toujours, les tatouages temporaires! 
 
+[Voyez ici les gilets officiels du JDL2014](jdl2014_gilet.md)
+
 #### Fun Facts
 - C'est cette année-là que Maxime Dupont vécu une grande déception: aucun fromage sur sa poutine de chez Roy et Diane.
 - Lors du quiz, les participants devaient créer un pays fictif. Le pays de Jean-Gabriel? Le Kazakhstan. Même pas foutu d'inventer un pays qui existe pas! [Vous retrouverez ici quelques drapeaux qu'on a pu admirer lors du JDL.](jdl2014_drapeaux.md)
