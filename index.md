@@ -218,6 +218,7 @@ Un thème salon du livre
 ![images/jdl2018_img_dan.PNG](images/jdl2018_img_dan.PNG)
 - Une mise à jour du poème "Soir d'Hiver" d'Émile Nelligan avait été remis [au goût du jour](jdl2017_poeme.md).
 - Un [livre pour enfant avait également vu le jour lors de cette édition](jdl2018_livreenfant.md).
+- Lors du tournoi "La Caverne de Pluton", [Où Est Charlie et son acolyte scaphandrier furent à l'honnreur.](jdl2018_charlie.md)
 
 #### Lien utiles
 
