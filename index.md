@@ -70,14 +70,17 @@ Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jou
 
 jdl2013_gilet.md
 
+
+
 #### Fun Facts
 - En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors-pair.
 - Le tournoi de Crutchball fut un bon moment pour tous, sauf pour tous ceux qui se sont luxé l'épaule.
 - Comme prémisse au JDL2013, un courriel fut envoyé à chaque mois afin de faire le décompte des mois restant avant l'événement.
 - En plus de l'invitation, fut dévoilé aux participants entre le 1er novembre et le 30 décembre 7 prédictions provenant du prophète Hellmann!
 - Les plus nostalgiques se rappelleront que depuis 2011, Grooveshark était le DJ officiel du JDL. RIP Buddy.
-- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peu peuvent se vanter d'avoir terminé!
-- Cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé. On se souviendra surtout d'une habile tentative de tricherie à ce niveau-là!
+- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peu peuvent se vanter d'avoir terminé! Voici en exemple deux cartes.
+![images/jdl2013_img_carte.PNG](images/jdl2013_img_carte.PNG)
+- Comme vous pouvez le constater ci-haut, cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé!
 - Splasher la bolle?
 
 #### Lien utiles
