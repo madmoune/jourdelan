@@ -148,6 +148,7 @@ Le Tournoi Coeur d'Enfant est la compétition officielle de ce JDL. Un des tourn
 #### Fun Facts
 - C'est cette année-là que fut lancée l'idée de veiller jusqu'au lever du soleil. Qu'elle criss d'idée de marde.
 - Après des performances inspirées de Frank, Geneviève, Laurie et Stéphanie, ce fut le tour de Seb d'être magané en maudit. Être couché avant le décompte de la nouvelle année, faut le faire, on lui lève notre chapeau.
+- Incursion dans le futur: le mur des résidents présenta une photo de ce qu'aurait l'air tous les participants quand ils seraient plus vieux. On regarde aujourd'hui et ça s'en rapproche dangeureusement!
 
 #### Lien utiles
 
@@ -155,7 +156,9 @@ Vous retrouverez ici l'[invitation de 2015](jdl2015_invitation.md).
 
 ---
 ### Jour de l'an 2016 (6ième édition)
-Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, afin de respecter la tradition. 
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, afin de respecter la tradition. Voici le faire part que les invités ont reçu.
+
+![images/jdl2016_img_fairepart.PNG](images/jdl2016_img_fairepart.PNG)
 
 Rendu à la 6ième édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
 
