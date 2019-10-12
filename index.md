@@ -178,17 +178,24 @@ Vous retrouverez ici l'[invitation de 2016](jdl2016_invitation.md).
 ### Jour de l'an 2017 (7ième édition)
 Devant la quantité d'enfants qui prolifèrent devant nos yeux, il allait de soit qu'une thématique *garderie* voit le jour! Mais pas n'importe quelle garderie, non! Celle de l'enfant de plusieurs d'entre-nous, avec une *twist* de théorie du complot. Rien de mieux!
 
+![images/jdl2017_img_pepi.png](images/jdl2017_img_pepi.png)
+
 Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du quiz nous perturbent encore à ce jour](jdl2017_sw_moumou.md])), cette édition présenta un site web beaucoup trop intense:
 
 - [Accueil](jdl2017_sw_accueil.md)
 - [Portes ouvertes](jdl2017_sw_po.md])
 - [FAQ](jdl2017_sw_faq.md])
 - [Films pour enfants](jdl2017_sw_films.md])
-- [Films pour enfants](jdl2017_sw_moumou.md])
+- [Quiz](jdl2017_sw_moumou.md])
 
 
 #### Fun Facts
-- 
+- Le Tournoi Vincent Damphourche vous invitait à lancer des balles dans la fourche d'une des 5 personnes suivantes
+    - Donald Trump
+    - Chad Kroeger
+    - Justin Bieber
+    - Gaétan Barette
+    - Dolores Umbridge
 
 #### Lien utiles
 
