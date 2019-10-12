@@ -34,6 +34,7 @@ Le JDL2011 fut la première édition de l'événement. Présentée à St-Célest
 - Échange de cadeaux
 - Le Potluck
 - Le déjeuner aux pains dorés préparé par Maxime
+- Bohemian Rhapsody
 
 #### Faits
 
