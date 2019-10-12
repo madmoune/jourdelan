@@ -4,7 +4,7 @@ Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jou
 
 Le but de ce cours est d'expérimenter et de comprendre l'emsemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'Ans**.
 
-## Plans de Cours
+## Plan de Cours
 
 [Le plan de cours est disponible ici](plandecours.md). Nous vous invitons à vous familiariser avec celui-ci, il contient les informations importantes à la réussite de votre cours.
 
@@ -67,6 +67,8 @@ On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré c
 Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jour de l'Ans d'aujourd'hui. Entre autre, c'est cette année-là que le premier tournoi du Jour de l'An eu lieu. On parle ici du tournoi de Crutchball, qui fut remporté par Etienne, et non Jérémie. Il va de soit que c'est en 2013 que le trophée du Jour de l'An fut inauguré!
 
 2013 fut également l'année avec le plus de décoration au Jour de l'An. La raison étant bien simple, le party de job de Moune ayant exactement le même thème, il a volé la moitié des décorations là-bas.
+
+jdl2013_gilet.md
 
 #### Fun Facts
 - En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors-pair.
