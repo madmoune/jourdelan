@@ -70,7 +70,7 @@ Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jou
 
 jdl2013_gilet.md
 
-
+https://www.youtube.com/watch?v=9HOK4yvjlR8
 
 #### Fun Facts
 - En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors-pair.
