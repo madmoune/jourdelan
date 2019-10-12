@@ -230,7 +230,7 @@ Vous retrouverez ici l'[invitation de 2018](jdl2018_invitation.md).
 Après une année sous le signe de la culture littéraire, 2019 alla vers un penchant plus télévisuel!
 
 #### Fun Facts
-- Une quantité limitée de personnes ont compris qu'ils fallaient offrir un livre pendant le cadeau d'échange.
+- Le vainqueur de la dégustation de Vin Diesel se vit remettre [le prix suivant.](jdl2019_vin.md)
 
 #### Lien utiles
 
