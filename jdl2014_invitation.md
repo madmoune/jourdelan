@@ -236,6 +236,36 @@ Nous espérons une grande participation à cette première édition des Jours De
 
 Si vous avez des questions pour le comité organisateur, vous pouvez les poser sur la FAQ, ou encore par e-mail.
 
+## Texte d'accueil du site interet
+
+Bienvenue sur le site officiel des Jours Delanpiques 2014!
+
+Voici un petit résumé des trois jours de compétitions qui arrivent :
+
+### 30 Décembre :
+
+- Cérémonie d'ouverture : Arrivée des pays à partir de 13h
+- Grande finale de hockey mixte
+- Souper chez Roy et Dianne International
+- Concours de dégustation de vin pour l'obtention de la suite royale du village olympique
+- Sport de démonstration : Tournoi de Beerpong
+- Plaisirs olympiques
+
+### 31 Décembre
+
+- Déjeuner du grand chef MaxDu
+- Préparation mentale et alimentaire pour la soirée
+- Buffet des continents
+- Échange de cadeaux multiculturel
+- Party olympique
+
+### 1 Janvier
+
+- Ménage olympique
+- Cérémonie de clôture : Départ des délégations vers leur pays d'origine
+
+Au plaisir de vous y voir!
+
 ## FAQ
 
 Si vous avez des questions pour le comité organisateur, vous pouvez les mettre en commentaire ici, ou les envoyer par e-mail.
