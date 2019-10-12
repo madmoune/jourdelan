@@ -114,6 +114,8 @@ La présence d'un *photobooth* et de tatouages temporaires est toujours un élé
 
 Un *bar* est aussi disponible, question de rendre les gens festifs encore plus festifs et de divertir les gens qui sont festifs, mais ajeuns.
 
+Autre incontournable, *Bohemian Rhapsody* jouera au moins une fois avant la fin de la veillée.
+
 ###### Fin de la fête
 
 Les derniers participants encore debouts tard le soir (ou tôt le matin) gagnent toujours le respect de leur pairs. Par contre, ils gagnent aussi la responsabilité de faire du ménage avant d'aller se coucher. C'est tout de même un faible prix à payer en échange de tout le plaisir qu'ils ont eu, et ça fait extrèmement plaisir aux propriétaires.
