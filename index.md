@@ -78,6 +78,7 @@ jdl2013_gilet.md
 - Les plus nostalgiques se rappelleront que depuis 2011, Grooveshark était le DJ officiel du JDL. RIP Buddy.
 - Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peu peuvent se vanter d'avoir terminé!
 - Cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé. On se souviendra surtout d'une habile tentative de tricherie à ce niveau-là!
+- Splasher la bolle?
 
 #### Lien utiles
 
