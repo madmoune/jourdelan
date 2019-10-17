@@ -1,6 +1,6 @@
-## Quiz des Quiz
+## Devoir: Quiz des Quiz et des Tournois
 
-### Premier Défi: Identifier vos réponses lors des quiz de 2014 à 2019
+### Identifier vos réponses lors des quiz de 2014 à 2019
 
 Votre premier défi consiste à naviguer les anciens quiz du **Jour de l'An** et à y retrouver l'entrée qui correspond à votre participation! Un point par bonne réponse. Si vous n'avez pas participé au quiz lors d'une édition, indiqué "-" comme réponse, vous aurez un demi-point si c'est vrai.
 
