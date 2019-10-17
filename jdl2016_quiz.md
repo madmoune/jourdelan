@@ -1,4 +1,4 @@
-## Quiz Réseau-Contact!
+## Quiz Réseau-Contact 2016!
 
 Voici une liste de gens vivants près de chez vous qui sont à la recherche de l’amour polygamounien! Associez le bon nom au bon profil et courez la chance de gagner un point boni à la dégustation de vin!
 
