@@ -7,7 +7,7 @@ Votre premier défi consiste à naviguer les anciens quiz du **Jour de l'An** et
 Voici la liste des quiz:
 
 - Retrouvez votre pays dans le [Quiz 2014](jdl2014_quiz.md)
-- Retrouvez votre lettre de résident dans le [Quiz 2015](jdl2015_quiz.md)
+- Retrouvez votre lettre de résident dans le [Quiz 2015](jdl2015_sw_quiz.md)
 - Retrouvez votre profil dans le [Quiz 2016](jdl2016_quiz.md)
 - Retrouvez la lettre de votre dessin de Moumou dans le [Quiz 2017](jdl2017_sw_moumou.md)
 - Retrouvez votre livre dans le [Quiz 2018](jdl2018_quiz.md)
@@ -44,14 +44,14 @@ F - Le Tournoi de Beerpong
 
 #### Copier le texte ci-dessous et me l'envoyer par courriel.
 
-Vos anciennes réponses de quiz:
+Vos anciennes réponses de quiz (indiquez la bonne lettre):
 
-- 2014 ():
-- 2015 ():
-- 2016 ():
-- 2017 ():
-- 2018 ():
-- 2019 ():
+- 2014:
+- 2015:
+- 2016:
+- 2017:
+- 2018:
+- 2019:
 
 Le tournoi avec la bonne année:
 
