@@ -7,7 +7,7 @@ Votre premier défi consiste à naviguer les anciens quiz du **Jour de l'An** et
 Voici la liste des quiz:
 
 - Retrouvez votre pays dans le [Quiz 2014](jdl2014_quiz.md)
-- Retrouvez votre lettre de résident dans le [Quiz 2015](jdl2015_sw_quiz.md)
+- Retrouvez votre lettre de résident dans le [Quiz 2015](jdl2015_quiz.md)
 - Retrouvez votre profil dans le [Quiz 2016](jdl2016_quiz.md)
 - Retrouvez la lettre de votre dessin de Moumou dans le [Quiz 2017](jdl2017_quiz.md)
 - Retrouvez votre livre dans le [Quiz 2018](jdl2018_quiz.md)
