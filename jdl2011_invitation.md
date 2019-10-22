@@ -95,5 +95,4 @@ J'imagine déjà de belles situations loufoques, telles que :
 - « Veux-tu goûter à mon pogo? »
 - « Je pensais pas que "défoncer la nouvelle année" me ferait aussi mal.»
 
-
 Max
