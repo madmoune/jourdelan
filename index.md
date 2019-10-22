@@ -48,6 +48,3 @@ On se souviendra de 2011 comme étant l'année où:
 - Moune a passé la soirée du 30 à l'urgence et le 31 sur les anti-biotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldat en plastique que Michel s'est mérité. C'était le début des cadeaux de marde au JDL.
-
-
-
