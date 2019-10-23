@@ -1,3 +1,5 @@
 theme: jekyll-theme-cayman
 title: Histoire du Jour de l'An 101
 description: Cours d'introduction sur les grandes lignes et l'histoire du Jour de l'An
+plugins:
+- jekyll-menus
