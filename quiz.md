@@ -2,7 +2,7 @@
 
 ### Identifier vos réponses lors des quiz de 2014 à 2019
 
-Votre premier défi consiste à naviguer les anciens quiz du **Jour de l'An** et à y retrouver l'entrée qui correspond à votre participation! Un point par bonne réponse. Si vous n'avez pas participé au quiz lors d'une édition, indiqué "-" comme réponse, vous aurez un demi-point si c'est vrai.
+Votre premier défi consiste à naviguer les anciens quiz du **Jour de l'An** et à y retrouver l'entrée qui correspond à votre participation! Un point par bonne réponse. Si vous n'avez pas participé au quiz lors d'une édition, indiquez "-" comme réponse, vous aurez un demi-point si c'est vrai.
 
 Voici la liste des quiz:
 
@@ -17,7 +17,7 @@ Voici la liste des quiz:
 
 Connaissez-vous bien votre JDL? Le deuxième défi est d'associer le bon tournoi à la bonne année. Par exemple, en 2013, ce fut le tournoi de Crutchball.
 
-Voici la liste des **Jour de l'Ans** pour lesquels vous devez trouver le tournoi:
+Voici la liste des **Jour de l'An** pour lesquels vous devez trouver le tournoi:
 
 - 2014: Les Jourdelanpiques
 - 2015: Le Jour de l'HEEENNN
