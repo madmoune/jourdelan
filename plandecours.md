@@ -2,11 +2,11 @@
 
 *Veuillez noter que le cours se donnera du 30 décembre 2019 au 1er janvier 2020.*
 
-Voici le déroulement du cours ***Histoire du Jour de l'An 101***. Tout d'abord, veuillez noter que vous devez vous présenter chez Karo et Moune à partir de 13h.
+Voici le déroulement du cours ***Histoire du Jour de l'An 101***. Tout d'abord, veuillez noter que vous devez vous présenter chez Karo et Moune à partir de **13h**.
 
 L'examen final aura pour but de vérifier vos connaissances sur le **Jour de l'An**, autant au niveau de sa théorie que de son côté pratique. Il se fera tout au long de votre séjour, en même temps que vous suivrez le cours, alors soyez attentif. 
 
-Pour vous préparer, veuillez vous familiariser avec [la théorie du **Jour de l'An** qui se retrouve ici](theorie.md). Vous devez aussi faire les 9 lectures obligatoires [que vous pouvez retrouver ici.](index.md)
+Avant de lire le plan de cours, on vous invite à vous familiariser avec [la théorie du **Jour de l'An** qui se retrouve ici](theorie.md). Vous devez aussi faire les 9 lectures obligatoires [que vous pouvez retrouver ici.](index.md)
 
 Pour le cours, on vous demande:
 - Un prix d'inscription de **15$ par personne**
@@ -19,7 +19,7 @@ Pour le cours, on vous demande:
 
 ### Déroulement du cours
 
-Ce cours se donne dans une formule immersive, où l'on recrée un **Jour de l'An** afin de que vous puissiez vivre l'expérience vous-même tout en en apprenant le plus possible. Nous sommes convaincus qu'il est plus facile d'apprendre en situation réelle qu'en ne faisant que lire de la théorie. 
+Ce cours se donne dans une formule immersive, où vous participerez à un **Jour de l'An** afin de pouvoir vivre l'expérience vous-même tout en en apprenant le plus possible. Nous sommes convaincus qu'il est plus facile d'apprendre en situation réelle qu'en ne faisant que lire de la théorie. 
 
 Comme mentionné plus haut, l'examen final comptant pour 100% de votre note se fera en même temps que le cours. Vous devrez le remplir selon les connaissances apprises sur ce site, mais également découvrir des réponses qui vous entoureront lors du cours.
 
@@ -36,7 +36,7 @@ Voici maintenant le plan de cours.
 
 Dès 13h, vous aurez l'occasion de vous familiariser avec un premier concept du **Jour de l'An**. À votre choix, vous pourrez aller jouer au hockey avec une gang de malades, ou allez glisser dehors avec les enfants. Vous pourrez participer à votre guise, ou simplement agir à titre de spectateur.
 
-Points à surveiller: la piètre qualité des joueurs de hockey et la piètre qualité des gens qui glissent.
+*Points à surveiller*: la piètre qualité des joueurs de hockey et la piètre qualité des gens qui glissent.
 
 Réjean Houle-Douville vous fera une démonstration de patinage vers l'arrière, suivi des meilleurs trucs pour absorber une chute avec votre cul.
 
@@ -67,13 +67,13 @@ Professeur Crissdenerd vous regardera de haut avec ses questions beaucoup trop n
 #### Travail Pratique #2: Déjeuner Mythique
 
 ***Heure***: de 7h à 11h 
-***Professeur***: Maître Dupont-Painchaud
+***Professeur***: Maître Maxince Arpin-Doré
 
-À votre réveil le 31 décembre, une première tâche vous incombera. Ce travail pratique vous demandera d'engloutir une quantité ridicule de pains dorés, comme la tradition le veut. 
+À votre réveil le 31 décembre, une autre tâche vous incombera. Ce travail pratique vous demandera d'engloutir une quantité ridicule de pains dorés, comme la tradition le veut. 
 
 Servit avec café baileys, ce sera un bon préparatif au reste de la journée qui devrait être assez intense.
 
-Maître Dupont-Painchaud s'assurera que vous aurez du bon pain chaud...
+Maître Maxince Arpin-Doré à préparation des pains dorés...
 
 #### Travaux Libres
 
@@ -82,7 +82,7 @@ Maître Dupont-Painchaud s'assurera que vous aurez du bon pain chaud...
 
 Une bonne partie de la journée sera en travaux libres alors que vous pourrez vous familiariser avec les différentes activités disponibles lors d'un **Jour de l'An**. On vous suggère fortement les parties de *Super Smash Bros* qui devraient vous divertir grandement et/ou vous mettre en *tabarnak*. Plaisir assuré!
 
-LCpersmashbros vous démontrera qu'il est possible de choisir Jigglypuff tout en n'étant pas un craqué mental.
+LCpersmashbros vous démontrera qu'il est possible de choisir *Jigglypuff* tout en n'étant pas un craqué mental.
 
 #### Travail Pratique #3: Potluck
 
@@ -113,19 +113,19 @@ Maître Gaby vous dévoilera un éventail de trucs à ne pas faire lorsqu'on cho
 ***Heure***: de 20h jusqu'au lever du soleil
 ***Professeur***: Dr. Moune, PhD en Jourdelanterie
 
-Dr.Moune vous accompagnera pour les restants de la soirée où plusieurs stations d'apprentissage seront disponibles. Nous vous invitons à faire le tour afin de compléter vos connaissances sur le **Jour de l'An**
+Dr.Moune vous accompagnera pour le restant de la soirée où plusieurs stations d'apprentissage seront disponibles. Nous vous invitons à faire le tour afin de compléter vos connaissances sur le **Jour de l'An**
 
 Seront présentes:
 - Piste de danse pour pratiquer vos *moves*
-- Bar pour pratiquer vos *drinks*
-- Beerpong pour vous faire humilier
-- Photobooth pour immortaliser vos mauvais choix de tatouages temporaires
+- Bar pour pratiquer vos *shots*
+- *Beerpong* pour vous faire humilier
+- *Photobooth* pour immortaliser vos mauvais choix de tatouages temporaires
 
 ##### Pause : Décompte et voeux de bonnes années
 
 Une petite interruption lors de la soirée sera de mise aux alentours de 23h59m50s, alors que l'ensemble des étudiants pourront célébrer l'arrivée de la nouvelle année tous ensemble! Suivant la tradition, les minutes suivantes serviront à se souhaiter tout plein de belles affaires! Lesdites minutes peuvent parfois devenir des heures, tout dépendant des participants impliqués.
 
-Dr. Moune vous montrera dix trucs pour finir rapidement ses souhaits. Le 7e va vous faire tomber en bas de votre 4Loko.
+Dr. Moune vous montrera dix trucs pour finir rapidement vos souhaits. Le 7e va vous faire tomber en bas de votre *4Loko*.
 
 #### Fin de la fête et remise des diplômes
 
@@ -133,7 +133,7 @@ Dr. Moune vous montrera dix trucs pour finir rapidement ses souhaits. Le 7e va v
 
 Les plus vaillants étudiants étant toujours debout pourront faire leur bonne action de l'année en offrant leur aide pour le ménage. Ils se verront par la même occasion donner une franche tape dans le dos en guise de remerciement, ce qui est selon nous la plus haute forme de respect. 
 
-Le matin venu, diplôme (ou non) en main, les étudiants pourront repartir le coeur léger et/ou légèrement sur la flotte.
+Le matin venu, diplôme (ou non) en main, les étudiants pourront repartir le coeur léger et/ou sur la flotte.
 
 #### Conclusion
 
