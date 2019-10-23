@@ -1,4 +1,4 @@
-## Gloire à Moumou
+## Quiz 2017
 
 ### Représentation de Moumou selon ses adorateurs
 
