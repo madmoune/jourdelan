@@ -18,11 +18,7 @@ Par exemple, un bon nom pour un **Jour de l'An** à thématique *Fils d'Emmanuel
 
 L'invitation se veut l'annonce officielle de l'événement. Elle est toujours envoyée le 1er novembre, deux mois avant les célébrations. Elle fut envoyée par courriel lors de toutes sauf une édition. Au fil du temps on a vu passer l'invitation d'un texte uniquement par courriel vers un site internet, puis vers un groupe *facebook*. 
 
-L'invitation est reconnue pour provoquer l'hilarité, le respect, ainsi que l'excitation envers l'événement qui approche. On la reconnait aussi comme étant une source infinie de *reply all* non nécessaire.
-
-##### Jeux de mots
-
-Une bonne invitation se doit de contenir de savoureux jeux de mots, vous trouverez [ici une liste des meilleurs répertoriés à travers les années.](jeuxdemots.md)
+L'invitation est reconnue pour provoquer l'hilarité, le respect, ainsi que l'excitation envers l'événement qui approche. On la reconnait aussi comme étant une source infinie de *reply all* non nécessaires.
 
 #### Date et Durée
 
@@ -32,11 +28,13 @@ Au tout début, les participants demeuraient sur place du début à la fin, mais
 
 #### Endroit
 
-L'endroit des festivités ne varie jamais. Il se déroule toujours dans la maison de Karo et Moune. Par contre, ladite maison a changé à une reprise depuis les débuts.
+L'endroit des festivités ne varie jamais. Il se déroule toujours dans la maison de Karo et Moune. Par contre, ladite maison a été remplacée à une reprise depuis 10 ans.
 
 #### Quiz
 
 Le *quiz pré-jdl* est un concours à caractère humoristique permettant d'entretenir l'engouement du **Jour de l'An**. Celui-ci se présente généralement comme un test d'association où l'on doit trouver à quel participant appartient une réponse. Suivant toujours le thème, on demande tout d'abord aux joueurs de créer un texte, une image, etc. Par la suite, le test d'association est envoyé et les résultats compilés. Le gagnant se mérite un point boni à la dégustation de vin.
+
+Mention honorable à tous ces gens qui années après années nous envoient des réponses des plus perturbantes.
 
 #### Site internet
 
@@ -48,17 +46,17 @@ Afin de mieux gérer les présences et la distribution d'information, des groupe
 
 #### Activités
 
-Le **Jour de l'An** contient son lot d'activité une fois l'événement venu. L'horaire est très chargé si on participe à tout, afin de tenir occupés les TDAs.
+Le **Jour de l'An** contient son lot d'activité une fois l'événement venu. L'horaire est très chargé si on participe à tout, mais ça n'effrait pas les vrais de vrais!
 
 ##### 30 décembre
 
 ###### Hockey et Glissades
 
-L'après-midi du 30 décembre est consacré aux sports hivernaux. Deux possibilités sont offertes, soit le hockey sur glace à la patinoire du coin, ainsi que la glissade sur tripe/traineau/*crazy carpet*/autres. Un café baileys est parfois de mise par journée froide.
+L'après-midi du 30 décembre est consacré aux sports hivernaux. Deux possibilités sont offertes, soit le hockey sur glace à la patinoire du coin, ainsi que la glissade sur tripe/traineau/*crazy carpet*/autres. Un café baileys est parfois de mise par journée froide. Coups de hockey sur les tibias un classique.
 
 ###### Souper
 
-À l'époque commandé chez Roy et Diane, le souper du 30 est désormais pris chez *Stratos* ou *Pizza Dit'Ally*. En tous les cas, la *junkfood* est toujours de la partie à ce moment de la journée.
+À l'époque commandé chez *Roy et Diane*, le souper du 30 est désormais pris chez *Stratos* ou *Pizza Dit'Ally*. En tous les cas, la *junkfood* est toujours de la partie afin de démarrer la nouvelle année essouflé.
 
 ###### Dégustation de Vin
 
@@ -68,23 +66,23 @@ Parfois thématique, parfois non, la dégustation de vin est un concours appréc
 
 Pillier du **Jour de l'An**, le tournoi annuel couronne chaque année une équipe gagnante dont le nom ne rime pas avec bon goût. La compétition varie en fonction du thème, allant de la compétition sportive au test mental. 
 
-Les deux dernières éditions ont eu un jeu d'évasion comme tournoi, ce qui a permis à tout le monde de voir très peu Moune le 30 au soir. Win-win qui disent.
+Les deux dernières éditions ont eu un jeu d'évasion comme tournoi, ce qui a permis à tout le monde de voir très peu Moune le 30 au soir. *Win-win* qui disent.
 
 ###### Trophée
 
 Le trophée du **Jour de l'An** est remis chaque année aux vainqueurs du tournoi. Ceux-ci se méritent de garder ledit trophée en leur possession toute l'année et de *bragger non-stop* pendant douze mois. 
 
-On grave évidemment le nom des gagnants sur le trophée à chaque année pour la postérité.
+On grave évidemment le nom des gagnants sur le trophée à chaque année pour la postérité et pour rendre le graveur mal à l'aise.
 
 ##### 31 décembre
 
 ###### Déjeuner
 
-Le déjeuner du 31 décembre est synonyme de pains dorés à l'orange, de sirop d'érable et de café baileys. Il est toujours préparé et servi par Maxime et Vincent, autrement cela porte malchance.
+Le déjeuner du 31 décembre est synonyme de pains dorés à l'orange, de sirop d'érable et de café baileys. Il est préparé et servi par Maxime et Vincent depuis des temps immémoriaux. Mains gommantes et surdoses de sucre, voilà une bon moyen de démarrer une journée!
 
 ###### Divertissement
 
-La journée du 31 est généralement assez tranquille, afin de garder le niveau d'énergie haut pour la soirée. Des jeux de société ou des jeux vidéos sont habituellement les moyens employés afin de passer le temps. La préparation du buffet et de l'habillement chic peut également se faire vers la fin de ce moment.
+La journée du 31 est généralement assez tranquille, afin de garder le niveau d'énergie haut pour la soirée. Des jeux de société ou des jeux vidéos sont habituellement les moyens employés afin de passer le temps. Les cris des joueurs sont particulièrement efficaces contre les gens qui voudraient faire une sieste.
 
 ###### Potluck
 
@@ -102,9 +100,9 @@ La photo de groupe est un des éléments essentiels du **Jour de l'An**. Elle pe
 
 ###### Décompte
 
-Comme le **Jour de l'An** concorde toujours avec le passage à la nouvelle année, un décompte affiché afin de ne pas manquer cet événement marquant. Au compte de zéro, tous les gens présents scandent "**BONNE ANNÉE!**", et s'ensuivent des échanges de voeux durant entre 10 et 300 minutes.
+Comme le **Jour de l'An** concorde toujours avec le passage à la nouvelle année, un décompte est affiché afin de ne pas manquer cet événement marquant. Au compte de zéro, tous les gens présents scandent "**BONNE ANNÉE!**", et s'ensuivent des échanges de voeux durant entre 10 et 300 minutes.
 
-On notera une variation marquée dans l'émotion ressentie des différentes personnes. C'est quelque chose qu'on doit respecter. ***C'TU CLAIR??***
+On notera une variation marquée dans l'émotion ressentie des différentes personnes. C'est quelque chose qu'on doit respecter. ***OK???***
 
 ###### Veillée jusqu'au matin
 
@@ -124,7 +122,7 @@ Les derniers participants encore debout tard le soir (ou tôt le matin) gagnent 
 
 Vous venez de lire les grandes lignes d'un **Jour de l'An**. Vous devriez maintenant être en mesure de comprendre le déroulement d'un tel événement, et peut-être même créer votre propre version (*please don't*).
 
-Toute la matière couverte dans cette page est sujette à être testée lors de votre examen pratique qui aura lieu du 30 décembre 2019 au 1er janvier 2020.
+Toute la matière couverte dans cette page est sujette à être testée lors de votre examen pratique qui aura lieu du **30 décembre 2019 au 1er janvier 2020**.
 
 Bonne étude.
   
