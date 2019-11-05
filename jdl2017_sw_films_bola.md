@@ -21,8 +21,11 @@
 ![images/jdl2017_img_film1.jpg](images/jdl2017_img_film19.png)
 ![images/jdl2017_img_film1.jpg](images/jdl2017_img_film20.png)
 
+<!---
 ## Autres pages:
 - [Accueil](jdl2017_sw_accueil.md)
 - [Portes ouvertes](jdl2017_sw_po.md])
 - [FAQ](jdl2017_sw_faq.md])
 - [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
+
+--->
