@@ -64,7 +64,7 @@ Parfois thématique, parfois non, la dégustation de vin est un concours appréc
 
 ###### Tournoi
 
-Pillier du **Jour de l'An**, le tournoi annuel couronne chaque année une équipe gagnante dont le nom ne rime pas avec bon goût. La compétition varie en fonction du thème, allant de la compétition sportive au test mental. 
+Pillier du **Jour de l'An**, le tournoi annuel couronne chaque année une équipe gagnante dont le nom ne rime pas avec bon goût. La compétition varie en fonction du thème, allant de la compétition sportive au test mental. Elle est souvent accompagnée de la chanson thème de *Mortal Combat*.
 
 Les deux dernières éditions ont eu un jeu d'évasion comme tournoi, ce qui a permis à tout le monde de voir très peu Moune le 30 au soir. *Win-win* qui disent.
 
