@@ -66,11 +66,11 @@ J’aimerais qu’on commence à organiser tout ça, donc j’ai besoin de savoi
 - Bouffe que vous aimeriez amener
 - Points forts et faibles de l’année passée
 
-Le dernier point est important, si vous avez des choses que vous avez vraiment aimées l’année passée que vous voulez qu’on le refasse cette année, dites-le ! Même chose sur les choses que vous avez pas aimée, question d’améliorer la soirée!
+Le dernier point est important, si vous avez des choses que vous avez vraiment aimées l’année passée que vous voulez qu’on le refasse cette année, dites-le ! Même chose sur les choses que vous avez pas aimées, question d’améliorer la soirée!
 
 Pour l’échange de cadeaux, je pense que 25$ c’était raisonnable l’année passée. Si vous avez des objections ou améliorations sur ça, faites-le savoir!
 
-Question : Avez-vous aimé ça l'échange de cadeau?
+Question : Avez-vous aimé ça l'échange de cadeaux?
 
 Karo nous suggère pour le 30 décembre qu'on s'organise une dégustation de vin (pour ceux qui aiment), on pourrait aussi trouver une variante pour les pas amateurs de vin. (Virgin Cuba Libre.. diet).
 
