@@ -20,7 +20,26 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
-### 1er Novembre 2019: Jour de l'An 2011 (1ere édition)
+### Lecture #2: 8 Novembre 2019 / Jour de l'an 2012 (2e édition)
+En 2012, toujours pas de thème établi. On compte sur l'enthousiasme des gens pour mettre de l'ambiance, ce qui a porté fruit l'année précédente! Cette année marque l'apparition du concours de dégustation de vin, proposée par Karol-Ann, dont les problèmes d'alcool commencèrent dans ces dates-là.
+
+Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut la seule année où l'expérience fut tentée.
+
+#### Fun Facts
+- Il semble que 2011 fût l'année où on a commencé à se mettre du ketchup su'l chest, une tradition qui se perdit en 2012.
+- Le 29 décembre 2012, un avertissement d'entrée de maison glacée fut envoyé. Comme quoi déjà à l'époque Moune n'était déjà pas un fervent déneigeur.
+- On se souviendra que les shooters de glace n'étaient pas un franc succès.
+- Cette année-là, Moune acheta le célèbre toutou de bacon qui disait "I'm Bacon". 20$ de shipping et 15$ de douanes plus tard, Seb le gagna et le crissa sans cérémonie dans son garde-robe, là où il ne vit plus jamais le jour.
+- La légende dit qu'une bouteille d'eau très forte circula en 2012.
+- Le mythique emballage femmes toutes nues fut à l'honneur. Pour commencer sur un cadeau, et ensuite dans un cadre à photo.
+- Deux mots: Sushis-pogos.
+
+#### Liens utiles
+
+Vous retrouverez ici l'[invitation de 2012](jdl2012_invitation.md).
+
+---
+### Lecture #1: 1er Novembre 2019 / Jour de l'An 2011 (1ere édition)
 
 ***Thème***: Aucun
 
@@ -48,4 +67,3 @@ On se souviendra de 2011 comme étant l'année où:
 - Moune a passé la soirée du 30 à l'urgence et le 31 sur les antibiotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldats en plastique que Michel s'est mérité. C'était le début des cadeaux de marde au JDL.
-
