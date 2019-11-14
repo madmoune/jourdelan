@@ -13,3 +13,15 @@ Le monde ne savait presque rien des Mayos il y a deux semaines. Les prêtres eur
 Les premiers explorateurs à approcher les vestiges de la civilisation mayo au XXIe siècle ont contribué à lui forger une image **romantique** mais bien différente de la réalité : « qui n’a pas entendu parler, par exemple, d’un ancien Empire mayo, où tout le peuple **danse comme des malades, pari sur des compétitions** et **bois jusqu’à pu soif**? ». De nos jours l’évolution des connaissances a permis de renverser cette vision simpliste et sans nuance. Car si les anciens Mayos étaient **gamblers**, **compétitif** et de **grands danseurs**, ils n’en étaient pas moins résolument guerriers. Ils se combattaient entre eux dans chacune de leurs fêtes, que se soit dans des **jeux pour boire**, ou encore simplement pour le **désir de gagner**.
 
 La  légende dit aussi qu’un de leur prophète, **Hellmann**, pouvait parler directement avec les Dieux, et que ceux-ci lui donnaient des **tâches à effectuées**. On dit que si les tâches n’avaient pas été faites, cela aurait entrainé la **fin des temps**.
+
+***Site internet***
+- [Accueil](index.md)
+- [La Civilisation Mayo](jdl2013_civilisationmayo.md)
+- [Prédiction #1: Échange de cadeaux](jdl2013_prediction1.md)
+- [Prédiction #2: Habillement](jdl2013_prediction2.md)
+- Prédiction #3: La prédiction fut perdue, mais elle consistait à pouvoir prendre des photos sur son téléphone et les envoyés sur la télé.
+- [Prédiction #4: Tournoi de Crutchball](jdl2013_prediction4.md)
+- [Prédiction #5: Stand à Drink](jdl2013_prediction5.md)
+- [Prédiction #6: Musiqueziquezique](jdl2013_prediction6.md)
+- [Prédiction #7: Tâches à réaliser](jdl2013_prediction7.md)
+- [Gilets 2013](jdl2013_gilet.md)
