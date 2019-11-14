@@ -20,7 +20,73 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
+### Lecture #3: 15 Novembre 2019 / Jour de l'an 2013 (3e édition)
+
+***Thème***: Les Mayos
+
+***Nom***: Le Jour de l'an Plaisant
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2013.](jdl2013_invitation.md)
+
+***Quiz***: Aucun
+
+On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré ce qu'en disaient les Mayas. Cette grande chance fut l'inspiration du tout premier thème officiel: Les Mayos! Pour l'occasion un courriel d'invitation fut envoyé et ce fut également le début des sites internets créés pour le jour de l'an. Bien que les sites n'existent plus, vous en trouverez le contenu en ces pages.
+
+Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jours de l'An d'aujourd'hui. Entre autres, c'est cette année-là que le premier tournoi du Jour de l'An eut lieu. On parle ici du tournoi de Crutchball, qui fut remporté par Etienne, et non Jérémie. Il va de soi que c'est en 2013 que le trophée du Jour de l'An fut inauguré!
+
+Pour un match épique de crutchball, c'est par ici: 
+
+![https://www.youtube.com/watch?v=9HOK4yvjlR8]()
+
+2013 fut également l'année avec le plus de décoration au Jour de l'An. La raison étant bien simple, le party de job de Moune ayant exactement le même thème, il a volé la moitié des décorations là-bas.
+
+#### Fun Facts
+- En 2013, le populaire bar fut installé devant l'ascenseur. On se souviendra que Steph fut une barmaid hors pair.
+- Cette année-là, un certain déneigeur, Denis de son prénom, vint faire de l'attitude aux hôtes avant le Jour de l'An. Quelques jours plus tard, dans un élan de maturité absolu, il renversa leurs bacs au chemin.
+- Le tournoi de Crutchball fut un bon moment pour tous, sauf pour tous ceux qui se sont luxé l'épaule.
+- Comme prémisse au JDL2013, un courriel fut envoyé chaque mois afin de faire le décompte des mois restant avant l'événement.
+- En plus de l'invitation, furent dévoilées aux participants entre le 1er novembre et le 30 décembre 7 prédictions provenant du prophète *Hellmann*!
+- Les plus nostalgiques se rappelleront que depuis 2011, Grooveshark était le DJ officiel du JDL. RIP Buddy.
+- Le 31 au soir, un carton par participants fut remis, lequel contenait des tâches à réaliser en cours de soirée. Un défi de taille que bien peu peuvent se vanter d'avoir terminé! Voici en exemple deux cartes.
+![images/jdl2013_img_carte.PNG](images/jdl2013_img_carte.PNG)
+- Comme vous pouvez le constater ci-haut, cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé!
+- Ce fut l'année ou la bolle fut splashée.
+
+#### Site internet
+- [La Civilisation Mayo](jdl2013_civilisationmayo.md)
+- [Prédiction #1: Échange de cadeaux](jdl2013_prediction1.md)
+- [Prédiction #2: Habillement](jdl2013_prediction2.md)
+- Prédiction #3: La prédiction fut perdue, mais elle consistait à pouvoir prendre des photos sur son téléphone et les envoyés sur la télé.
+- [Prédiction #4: Tournoi de Crutchball](jdl2013_prediction4.md)
+- [Prédiction #5: Stand à Drink](jdl2013_prediction5.md)
+- [Prédiction #6: Musiqueziquezique](jdl2013_prediction6.md)
+- [Prédiction #7: Tâches à réaliser](jdl2013_prediction7.md)
+- [Gilets 2013](jdl2013_gilet.md)
+
+#### Prédiction des participants
+
+Les participants furent invités à faire leurs propres prédictions. Voici les meilleures:
+- Il va y avoir des chests partout (Moune)
+- Au moins la moitié des gense vont avoir quelque chose dans leur culotte (Gaby)
+- Étienne va vraiment être désagréable (Etienne)
+- Moune sera proche de ses émotions après 3 verres (Freud)
+- Moune sera proche de ses émotions après 2 verres (Freud 2)
+- Karo va encore nous parler de comment elle aime le Beaujolais (SAQ)
+- M'a me faire parler de comment j'étais chaud v'la 2 ans (Frank)
+- Y'a quelqu'un d'autre qui va avoir la ''bonne'' idée de boire des shooters dans des verres en glace (Seb)
+
+---
+
 ### Lecture #2: 8 Novembre 2019 / Jour de l'an 2012 (2e édition)
+
+***Thème***: Aucun
+
+***Nom***: Aucun
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2012.](jdl2012_invitation.md)
+
+***Quiz***: Aucun
+
 En 2012, toujours pas de thème établi. On compte sur l'enthousiasme des gens pour mettre de l'ambiance, ce qui a porté fruit l'année précédente! Cette année marque l'apparition du concours de dégustation de vin, proposée par Karol-Ann, dont les problèmes d'alcool commencèrent dans ces dates-là.
 
 Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut la seule année où l'expérience fut tentée.
@@ -33,10 +99,6 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 - La légende dit qu'une bouteille d'eau très forte circula en 2012.
 - Le mythique emballage femmes toutes nues fut à l'honneur. Pour commencer sur un cadeau, et ensuite dans un cadre à photo.
 - Deux mots: Sushis-pogos.
-
-#### Liens utiles
-
-Vous retrouverez ici l'[invitation de 2012](jdl2012_invitation.md).
 
 ---
 ### Lecture #1: 1er Novembre 2019 / Jour de l'An 2011 (1ere édition)
