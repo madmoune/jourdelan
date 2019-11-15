@@ -36,7 +36,7 @@ Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jou
 
 Pour un match épique de crutchball, c'est par ici: 
 
-![https://www.youtube.com/watch?v=9HOK4yvjlR8]()
+![https://www.youtube.com/watch?v=9HOK4yvjlR8](https://www.youtube.com/watch?v=9HOK4yvjlR8)
 
 2013 fut également l'année avec le plus de décoration au Jour de l'An. La raison étant bien simple, le party de job de Moune ayant exactement le même thème, il a volé la moitié des décorations là-bas.
 
