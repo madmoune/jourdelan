@@ -83,7 +83,7 @@ En après-midi, tous les athlètes sont convoqués à l’aréna officiel du tou
 
 #### REPAS POUR LES ATHLÈTES
 
-Après le match, les joueurs pourront commander un repas au distingué restaurant **Roy et Dianne International**. Il ne devrait pas avoir de problème si vous désirez du fromage sur votre frite-sauce, sauf pour Max Dupont. Il sera important de bien manger pour récupérer ses énergies avant le tournoi officiel d’un sport à l’essai.
+Après le match, les joueurs pourront commander un repas au distingué restaurant **Roy et Diane International**. Il ne devrait pas avoir de problème si vous désirez du fromage sur votre frite-sauce, sauf pour Max Dupont. Il sera important de bien manger pour récupérer ses énergies avant le tournoi officiel d’un sport à l’essai.
 
 Effectivement, avant de l’intégrer à Sotchi, le **Beerpong doit passer par le statut de sport de démonstration** ici aux Jours Delanpiques!
 
