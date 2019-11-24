@@ -24,7 +24,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ***Thème***: Les Jeux Olympiques
 
-***Nom***: Les Jourdelanpiques
+***Nom***: Les Jours Delanpiques
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2014.](jdl2014_invitation.md)
 
