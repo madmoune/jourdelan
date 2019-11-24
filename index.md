@@ -26,7 +26,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ***Nom***: Les Jourdelanpiques
 
-***Invitation***: [Vous retrouverez ici l'invitation de 2014.](jdl2014_invitation.md)
+***Invitation***: [Vous retrouverez ici l'invitation de 2014.](jdl2014_invitation)
 
 ***Quiz***: [Le Quiz des Pays](jdl2014_quiz.md)
 
