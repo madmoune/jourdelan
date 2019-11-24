@@ -20,6 +20,33 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
+### Lecture #4: 24 Novembre 2019 / Jour de l'an 2014 (4ième édition)
+
+***Thème***: Les Jeux Olympiques
+
+***Nom***: Les Jourdelanpiques
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2014.](jdl2014_invitation.md)
+
+***Quiz***: [Le Quiz des Pays](jdl2014_quiz.md)
+
+2014 marque une autre grande étape dans le développement de l'invitation du Jour de l'An. Inspiré des Jeux Olympiques de Sotchi, le thème Les Jourdelanpiques est choisi. L'événement verra apparaître encore quelques classiques qu'on reconnait toujours aujourd'hui. Tout d'abord, instauration du Quiz Pré-JDL, un jeu d'association où les résultats sont toujours sous la note de passage, dont le gagnant se mérite un point bonus à la dégustation de vin. 
+
+D'ailleurs, ladite dégustation de vin offre maintenant au vainqueur de séjourner dans la chambre d'amis pour la durée du JDL, un prix qui vaut son pesant d'or, ou pas!
+
+Le photobooth fait aussi son apparition au JDL2014, avec ceux qui deviendront ses alliés de toujours, les tatouages temporaires! 
+
+[Voyez ici les gilets officiels du JDL2014](jdl2014_gilet.md)
+
+Cette année-là, fut brassée quelques bonnes bières de Coubertin!
+![images/jdl2014_img_biere.jpg](images/jdl2014_img_biere.jpg)
+
+#### Fun Facts
+- Ce fut l'année où fut lancée l'idée de veiller jusqu'au lever du soleil. Quelle criss d'idée de marde.
+- C'est cette année-là que Maxime Dupont vécut une grande déception: aucun fromage sur sa poutine de chez *Roy et Diane*.
+- Lors du quiz, les participants devaient créer un pays fictif. Le pays de Jean-Gabriel? Le Kazakhstan. Même pas foutu d'inventer un pays qui existe pas! [Vous retrouverez ici quelques drapeaux qu'on a pu admirer lors du JDL.](jdl2014_drapeaux.md)
+- C'était peut-être à cause de leurs trop grandes jambes ou de leur consommation d'alcool, quoi qu'il en soit, LC et MC ont défoncé la porte du garde-manger lors de la soirée du 31.
+
 ### Lecture #3: 15 Novembre 2019 / Jour de l'an 2013 (3e édition)
 
 ***Thème***: Les Mayos
