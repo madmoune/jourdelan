@@ -43,7 +43,6 @@ Cette année-là, fut brassée quelques bonnes bières de Coubertin!
 
 #### Fun Facts
 - Ce fut l'année où fut lancée l'idée de veiller jusqu'au lever du soleil. Quelle criss d'idée de marde.
-- C'est cette année-là que Maxime Dupont vécut une grande déception: aucun fromage sur sa poutine de chez *Roy et Diane*.
 - Lors du quiz, les participants devaient créer un pays fictif. Le pays de Jean-Gabriel? Le Kazakhstan. Même pas foutu d'inventer un pays qui existe pas! [Vous retrouverez ici quelques drapeaux qu'on a pu admirer lors du JDL.](jdl2014_drapeaux.md)
 - C'était peut-être à cause de leurs trop grandes jambes ou de leur consommation d'alcool, quoi qu'il en soit, LC et MC ont défoncé la porte du garde-manger lors de la soirée du 31.
 
@@ -78,6 +77,7 @@ Pour un match épique de crutchball, c'est par ici:
 ![images/jdl2013_img_carte.PNG](images/jdl2013_img_carte.PNG)
 - Comme vous pouvez le constater ci-haut, cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé!
 - Ce fut l'année ou la bolle fut splashée.
+- C'est cette année-là que Maxime Dupont vécut une grande déception: aucun fromage sur sa poutine de chez *Roy et Diane*.
 
 #### Site internet
 - [La Civilisation Mayo](jdl2013_civilisationmayo.md)
