@@ -23,7 +23,7 @@ Qui veut la peau de Roger Rabbit?
 
 Très chères et très chers bros,
 
-Grosse nouvelle dans le monde du sport! Après sa nomination comme président du CIO, [Thomas Bach](https://fr.wikipedia.org/wiki/Thomas_Bach) a pris sa première grande décision. Il a décidé de créer une version plus festive des Jeux olympiques, qui pourrait être présentée à chaque nouvel an! Il s’agit d’un évènement préparatoire aux vrais Jeux olympiques, présenté dans le but de garder l’intérêt des gens au plus au niveau en attendant Sotchi 2014 et les jeux subséquents. Évidemment, le but ici est d’organiser des Jeux qui montreront que c’est possible de ne pas dépasser le budget, d’avoir toutes les infrastructures sportives à temps et de ne causer aucun désastre écologique (Fail la Russie! Et Montréal. Et Londres. Et pas mal tout le monde finalement).
+Grosse nouvelle dans le monde du sport! Après sa nomination comme président du CIO, [Thomas Bach](https://fr.wikipedia.org/wiki/Thomas_Bach) a pris sa première grande décision. Il a décidé de créer une version plus festive des Jeux olympiques, qui pourrait être présentée à chaque Nouvel An! Il s’agit d’un évènement préparatoire aux vrais Jeux olympiques, présenté dans le but de garder l’intérêt des gens au plus au niveau en attendant Sotchi 2014 et les jeux subséquents. Évidemment, le but ici est d’organiser des Jeux qui montreront que c’est possible de ne pas dépasser le budget, d’avoir toutes les infrastructures sportives à temps et de ne causer aucun désastre écologique (Fail la Russie! Et Montréal. Et Londres. Et pas mal tout le monde finalement).
 
 Comme vous le devinez probablement, avec l’organisation de 3 jours de l’an derrière la cravate, M.Bach a pensé à moi pour l’organisation de ces Jeux! J’ai donc hérité de la tâche de voir à la préparation et la présentation des nouveaux Jeux olympiques, et j’ai nommé :
 
@@ -42,7 +42,7 @@ Et c’est pourquoi j’ai pensé à vous! Pour la première édition des Jours 
 - Nom de votre pays
 - Drapeau de votre pays (sur feuille de papier, imprimé ou dessiné, ou tout autre moyen moins cheap que le papier!)
 - Repas typique de votre pays pour le buffet du 31
-- Un présent par personne de votre délégation d’une valeur de 25$ pour l’échange de cadeau
+- Un présent par personne de votre délégation d’une valeur de 25$ pour l’échange de cadeaux
 
 Afin de bien expliquer tout le déroulement des Jours Delanpiques et d’en saisir l’esprit dans son entièreté, en voici les grandes lignes.
 
@@ -61,7 +61,7 @@ La première édition des Jours Delanpiques est fière d’avoir comme présiden
 
 On lui doit la devise olympique Citius, Altius, Fortius, remis au goût du jour ci-haut, et l’adoption de la maxime olympique :
 
-    L’important dans la vie n’est pas de vaincre mais de lutter. L’essentiel n’est pas d’avoir gagné mais de s’être bien battu.
+    L’important dans la vie n’est pas de vaincre, mais de lutter. L’essentiel n’est pas d’avoir gagné, mais de s’être bien battu.
 
 Dans notre édition des Jeux, cette maxime ne sera pas endossée, car le comité organisateur considère que c’est une « esti de quote de loser ».
 
@@ -75,11 +75,11 @@ Des frais d’inscription seront demandés aux athlètes, étant donné le non-b
 
 Suivra ensuite l’arrivée des athlètes dans le **village olympique** qui les hébergera pour la durée de l’évènement: La cave. Le village olympique accueillera une compétition plus tard en soirée, donc il est possible que les installations des athlètes doivent être déplacées à ce moment.
 
-Lorsqu’une bonne majorité d’athlète seront arrivés au stade, le pays hôte procédera à l’**allumage de la flamme olympique**!
+Lorsqu’une bonne majorité d’athlètes seront arrivés au stade, le pays hôte procédera à l’**allumage de la flamme olympique**!
 
 #### GRANDE FINALE OLYMPIQUE DE HOCKEY SUR GLACE (MIXTE)
 
-En après-midi, tous les athlètes sont convoqués à l’aréna officielle du tournoi de hockey sur glace pour la **présentation du match final**. Sur cette patinoire extérieure aux dimensions non-olympiques devrait avoir lieu un des plus grands matches de l’histoire du hockey, une partie dont on se souviendra longtemps! Voici enfin votre chance de vous prendre pour Sydney Crosby et marquer le but gagnant en prolongation!
+En après-midi, tous les athlètes sont convoqués à l’aréna officiel du tournoi de hockey sur glace pour la **présentation du match final**. Sur cette patinoire extérieure aux dimensions non olympiques devrait avoir lieu un des plus grands matches de l’histoire du hockey, une partie dont on se souviendra longtemps! Voici enfin votre chance de vous prendre pour Sydney Crosby et marquer le but gagnant en prolongation!
 
 #### REPAS POUR LES ATHLÈTES
 
@@ -87,7 +87,7 @@ Après le match, les joueurs pourront commander un repas au distingué restauran
 
 Effectivement, avant de l’intégrer à Sotchi, le **Beerpong doit passer par le statut de sport de démonstration** ici aux Jours Delanpiques!
 
-#### DÉGUSTATION DE VIN INTERNATIONAUX
+#### DÉGUSTATION DE VINS INTERNATIONAUX
 
 Avant le grand tournoi de Beerpong, les athlètes seront conviés à un moment détente où ils pourront déguster des alcools provenant de partout dans le monde. Pour ajouter à l’agrément, ils pourront **tenter de deviner les vins qu’ils consomment**, dans le but de remporter un prix des plus prisé : la suite royale du village olympique.
 
@@ -95,11 +95,11 @@ Avant le grand tournoi de Beerpong, les athlètes seront conviés à un moment d
 
 Le tournoi aura lieu dans le village olympique et opposera des équipes de deux joueurs qui s’affronteront dans le but de monter sur la plus haute marche du podium. Après le tournoi, une **cérémonie de remise des médailles avec l’hymne national** de l’équipe gagnante aura lieu.
 
-Pour une plus grande équité, les équipes seront **formées au hasard**. Donc l’organisation des Jours Delanpiques espère avoir un **maximum de participants**, c’est-à-dire tout le monde! Le tournoi obéira aux règles non-officielles qui sont en usage depuis le début de l’année 2013. Un juge sera affecté à chaque match et nous allons faire notre possible pour que la corruption soit à son niveau le plus bas.
+Pour une plus grande équité, les équipes seront **formées au hasard**. Donc l’organisation des Jours Delanpiques espère avoir un **maximum de participants**, c’est-à-dire tout le monde! Le tournoi obéira aux règles non officielles qui sont en usage depuis le début de l’année 2013. Un juge sera affecté à chaque match et nous allons faire notre possible pour que la corruption soit à son niveau le plus bas.
 
 Dans l’optique de garder les athlètes dans une forme optimale pour la soirée du 31, **l’alcool ne sera pas obligatoire** lors du tournoi. Avant chaque match, **chacune des équipes annoncera si ses membres consommeront ou non de l’alcool pendant le match**. Les puristes pourront donc boire dans les règles de l’art, tandis que les néophytes pourront s’initier au sport sans en subir les contrecoups le lendemain. C’est une décision difficile à prendre pour le comité organisateur, mais cela est nécessaire si on désire avoir la participation de tout le monde.
 
-Le tournoi sera sous la forme **double-élimination**. Il sera joué au son de la chanson de **Mortal Combat** et la finale sera filmée pour la postérité. De plus, sera à l’enjeu dans le tournoi un **fabuleux trophée**!
+Le tournoi sera sous la forme **double élimination**. Il sera joué au son de la chanson de **Mortal Combat** et la finale sera filmée pour la postérité. De plus, sera à l’enjeu dans le tournoi un **fabuleux trophée**!
 
 Après le tournoi, les athlètes seront libérés de toutes obligations pour le reste de la soirée. Un repos bien mérité sera de mise, que ce soit immédiatement après le tournoi ou plusieurs heures plus tard.
 
@@ -157,7 +157,7 @@ Nous demandons aux athlètes de se présenter au stade en **tenue chic en plus d
 
 ***Activités complémentaires du 31 au soir***
 
-À quelque part entre les compétitions susmentionnées, un autre sport de démonstration nommé « **Échanges de produits locaux entre dignitaires des pays représentés** » sera présenté. D’une valeur de **25$**, les membres des délégations doivent apporter un présent provenant de leur pays qui pourra être sélectionné et volé au cours d’un échange des plus endiablé!
+Quelque part entre les compétitions susmentionnées, un autre sport de démonstration nommé « **Échanges de produits locaux entre dignitaires des pays représentés** » sera présenté. D’une valeur de **25$**, les membres des délégations doivent apporter un présent provenant de leur pays qui pourra être sélectionné et volé au cours d’un échange des plus endiablé!
 
 Avant que le « Patinage sur courte de piste de danse » s’entame juste après, nous aimerions que le buffet soit libéré de la table du stade, sans toutefois bloquer le comptoir de la cuisine du pays hôte. Juste enlever vos choses et les laisser dans le **chinatown olympique** (garage) pour les ramasser plus tard au pire. La table et le comptoir seront nécessaires plus tard dans la soirée.
 
@@ -179,9 +179,9 @@ Comme tout bon 31 décembre, il sera de mise de célébrer l’arrivée de 2014 
 
 Un **délicieux mousseux** sera de mise lors des échanges de souhaits!
 
-***Tests Antidopages***
+***Tests Antidopage***
 
-Des contrôles antidopages aléatoires auront lieux tout au long de la compétition pour éviter la tricherie lors des épreuves. Une toilette sera disponible dans le village olympique et le pays hôte demande aux athlètes de fournir un échantillon chaque fois que vous devez l’utiliser. Les échantillons liquides devront être remis à Rémi Duhaime et les solides à Jérémie Aubé, expert et passionné du domaine. **Prière de ne pas splasher le bol de toilette**.
+Des contrôles antidopage aléatoires auront lieu tout au long de la compétition pour éviter la tricherie lors des épreuves. Une toilette sera disponible dans le village olympique et le pays hôte demande aux athlètes de fournir un échantillon chaque fois que vous devez l’utiliser. Les échantillons liquides devront être remis à Rémi Duhaime et les solides à Jérémie Aubé, expert et passionné du domaine. **Prière de ne pas splasher le bol de toilette**.
 
 ***Zone de manifestation***
 
@@ -236,7 +236,7 @@ Nous espérons une grande participation à cette première édition des Jours De
 
 Si vous avez des questions pour le comité organisateur, vous pouvez les poser sur la FAQ, ou encore par e-mail.
 
-## Texte d'accueil du site interet
+## Texte d'accueil du site internet
 
 Bienvenue sur le site officiel des Jours Delanpiques 2014!
 
@@ -278,11 +278,11 @@ Pour faire de la décoration dans place et mettre de l’ambiance.
 
 Vous envoyez à Moune votre pays (et le drapeau s’il est prêt) avant le 15 décembre. Ensuite, parmi tout ceux qui ont envoyé leur pays, il y aura un quiz pour deviner les pays des autres. Le gagnant aura droit à un point boni lors de la dégustation de vin qu’il pourra garder, donner ou vendre au plus offrant.
 
-**Comment fonctionne les contributions au buffet?**
+**Comment fonctionnent les contributions au buffet?**
 
 Une contribution par couple, comme l’année passée.
 
-**Comment fonctionne l’échange de cadeau?**
+**Comment fonctionne l’échange de cadeaux?**
 
 Un cadeau par personne qui participe, d’une valeur de 25$.
 
@@ -310,5 +310,6 @@ Le baron von Rotton alias le Juge DeMort.
 Les participants avaient la chance de proposer un sport de démonstration qu'ils aimeraient voir apparaître aux Olympiques. Voici les meilleurs:
 - Ketchup su'l Chestathlon (Moune)
 - La neige synchronisée (Michel)
-- Le 100 mètres jeans baissées (LC)
+- Le 100 mètres jeans baissés (LC)
 - Gosser Laroche (Etienne)
+
