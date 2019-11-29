@@ -35,7 +35,7 @@ En déposant vos choses, prenez garde de ne pas vous endormir pour votre 3e sies
 
 Oubliez la pétanque durant les portes ouvertes, car on veut vous replonger dans le temps où avec les pieds gelés, vous alliez vous faire humilier par des kids deux fois moins vieux que vous autres à la patinoire! Ah, que de bons souvenirs! Préparez vos patins, votre canne avec une palette et votre habillement le plus chaud, car nous allons aller fouler la surface glacée une dernière fois avant de vous enfermer chez nous pour de bon! On jouera du bon vieux hockey comme dans le temps d’Eddy Shore!
 
-Situation possible lors du match du 30 décembre : (https://www.youtube.com/watch?v=-WZ0uRJOatQ)[https://www.youtube.com/watch?v=-WZ0uRJOatQ]
+[Situation possible lors du match du 30 décembre](https://www.youtube.com/watch?v=-WZ0uRJOatQ)
 
 Pendant la partie, gardez vos bâtons bas pour éviter les blessures au niveau du visage. Votre beau dentier et vos yeux nouvellement sans cataracte, ça vaut cher!
 
