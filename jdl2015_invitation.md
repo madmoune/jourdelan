@@ -1,6 +1,6 @@
 ## Invitation 2015
 
-### L'invitation de 2015 fut envoyée par courriel le 1 novembre 2014. 
+### L'invitation de 2015 fut envoyée par courriel le 1er novembre 2014. 
 
 Bonjour à tous!
 
@@ -23,7 +23,7 @@ On est pu c'qu'on a déjà été...
 ![jdl2015_img_invitation1](images/jdl2015_img_invitation1.png)
 [https://www.youtube.com/watch?v=7xlTF2Uv4Bs](https://www.youtube.com/watch?v=7xlTF2Uv4Bs)
 
-C'est pourquoi Karo et moi nous sommes dit que tant qu'à devenir des vieux câlisses, aussi bien se tenir avec des vieux câlisses (et être payés pour)! Ça peut sembler une idée saugrenue à première vue, mais ne jugez pas trop vite. Pour bien comprendre notre point, regardons à quoi nos soirées entre amis ressemblent dernièrement :
+C'est pourquoi Karo et moi nous sommes dits que tant qu'à devenir des vieux câlisses, aussi bien se tenir avec des vieux câlisses (et être payés pour)! Ça peut sembler une idée saugrenue à première vue, mais ne jugez pas trop vite. Pour bien comprendre notre point, regardons à quoi nos soirées entre amis ressemblent dernièrement :
 
 - Souper pas trop lourd sur l'estomac
 - Jasage autour d'une table
@@ -32,7 +32,7 @@ C'est pourquoi Karo et moi nous sommes dit que tant qu'à devenir des vieux câl
 
 On s'entend-tu que nos soirées et les soirées à l'hospice, c'est pas mal la même chose? 
 
-Il faut se rendre à l'évidence, on vieillit, on achève, nos meilleures années sont derrières nous... 
+Il faut se rendre à l'évidence, on vieillit, on achève, nos meilleures années sont derrière nous... 
 
 On est maintenant plus dans le style :
 
@@ -47,7 +47,7 @@ Je sais, je sais, c'est difficile à accepter. J'arrive aujourd'hui et je vous a
 
 Peut-être même qu'on a commencé à vous appeler "Monsieur" ou "Madame"? Personnellement, ça me met hors de moi de me faire appeler "Madame"!
 
-Malheureusement, je vous le dis tout de suite, ça ne s'améliorera pas. Lors des deux prochaines années, la plupart d'entre nous atteindrons l'âge déshonorable de 30 ans. On peut-tu dire qu'on est loin du chocolat chaud au Tim Horton à 4 heures du matin et du renversage de poubelles dans les rues de Shawi? Et ceux qui ont juste genre 19 ans comme Marie-Pier, faites-vous en pas. Un jour tu te lèves pour aller à l'école, pis POW! Le lendemain tu te réveilles à ton party de retraite! Drète de même!
+Malheureusement, je vous le dis tout de suite, ça ne s'améliorera pas. Lors des deux prochaines années, la plupart d'entre nous atteindront l'âge déshonorable de 30 ans. On peut-tu dire qu'on est loin du chocolat chaud au Tim Horton à 4 heures du matin et du renversage de poubelles dans les rues de Shawi? Et ceux qui ont juste genre 19 ans comme Marie-Pier, faites-vous-en pas. Un jour tu te lèves pour aller à l'école, pis POW! Le lendemain tu te réveilles à ton party de retraite! Drète de même!
 
 Mais bon, séchez vos larmes mes amis... car pour vous aider dans votre processus d'acceptation, nous avons un cadeau pour vous!
 
@@ -78,4 +78,3 @@ Vous y trouverez toutes sortes d'informations sur nos services, n'hésitez pas �
 - [Le Jour de l'HEEENNN](jdl2015_sw_jdl.md)
 - [Est-ce pour moi?](jdl2015_sw_epm.md)
 - [FAQ](jdl2015_sw_faq.md)
-
