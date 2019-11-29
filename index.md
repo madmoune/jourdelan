@@ -22,9 +22,9 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ### Lecture #5: 29 Novembre 2019 / Jour de l'an 2015 (5ième édition)
 
-***Thème***: Le vieillissement!
+***Thème***: La résidence P'tit Bum
 
-***Nom***: La Résidence P'tit Bum
+***Nom***: Le Jour de l'HEEENNN?
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2015.](jdl2015_invitation.md)
 
