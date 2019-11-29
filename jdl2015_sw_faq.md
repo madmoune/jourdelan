@@ -8,8 +8,8 @@ En résumé!
 
 - Votre inscription.
 - Indiquer votre élément du buffet.
-- M’envoyer une photo de vous dans le style permis de conduire avec sourire.
-- M’envoyer la réponse pour les quatre lignes (Vous pouvez inventer ou dire des vraies affaires).
+- M’envoyer une photo de vous dans le style permit de conduire avec sourire.
+- M’envoyer la réponse pour les quatre lignes (vous pouvez inventer ou dire des vraies affaires).
   - Citation : De vous, de quelqu’un d’autre, ou inventée.
   - Activités : Vraies ou inventées.
   - Sports : Vrais ou inventés.
