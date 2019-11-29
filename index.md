@@ -32,11 +32,12 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 Voyant la crise de la trentaine approchée à grands pas, Moune s'en inspire en 2014 afin de choisir le thème Le Jour de l'HEEENNN? C'est dans l'ambiance d'une maison de retraite qu'il recevra les gens cette année-là.
 Peu de gens le remarquèrent à l'époque, mais plusieurs courriels préparatoires furent envoyés avant le 1 novembre 2014. Dans la lignée du "Peux-tu deviner le thème" de l'année précédente, 4 messages sont envoyés afin de faire la promotion du thème de 2015. [Vous pouvez les consulter ici](jdl2015_courriels.md).
-Le Tournoi Coeur d'Enfant est la compétition officielle de ce JDL. Un des tournois préférés de Moune, particulièrement l'épreuve d'identification des émissions jeunesse. On ose croire que les gens ont eu autant de plaisir à le faire que Moune à le créer.
+Le *Tournoi Coeur d'Enfant* est la compétition officielle de ce JDL. Un des tournois préférés de Moune, particulièrement l'épreuve d'identification des émissions jeunesse. On ose croire que les gens ont eu autant de plaisir à le faire que Moune à le créer.
 
 #### Fun Facts
 - Après des performances inspirées de Frank, Geneviève, Laurie et Stéphanie, ce fut le tour de Seb d'être magané en maudit. Être couché avant le décompte de la nouvelle année, faut le faire, on lui lève notre chapeau.
 - Incursion dans le futur: le mur des résidents présenta une photo de ce qu'aurait l'air tous les participants quand ils seraient plus vieux. On regarde aujourd'hui et ça s'en rapproche dangereusement!
+- Des médicaments douteux étaient disponibles à la résidence, c'est-à-dire, des jelly beans aux saveurs extrêmement variées! Un bon truc pour être certain de pas gouter à celui au vomi? L'avaler comme une pilule, sans croquer!
 
 ---
 
