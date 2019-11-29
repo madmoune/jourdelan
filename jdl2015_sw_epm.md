@@ -33,7 +33,7 @@ Symptômes:
 - T’es pu dans la bracket 18-24 dans les sondages.
 - T’as déjà mangé des pizzas pochettes.
 - Tu portes des robes de chambre.
-- Ton soucie de la sécurité augmente avec les années.
+- Ton souci de la sécurité augmente avec les années.
 - T’as un mini-van.
 - Tu tripes sur Gino Chouinard.
 - Avant tu allais à l’école en autobus. Aujourd’hui tu conduis des autobus.
@@ -45,7 +45,7 @@ Symptômes:
 
 Si un ou plusieurs des éléments précédents vous affectent, joignez-vous à nous lors de notre [party du Jour de l’HEEENNN?](jdl2015_sw_jdl.md) pour avoir plus d’informations sur les modalités d’inscription à notre hospice!
 
-## Autres apges
+## Autres pages
 - [Accueil](jdl2015_sw_accueil.md)
 - [Services](jdl2015_sw_services.md)
 - [Résidence](jdl2015_sw_residence.md)
