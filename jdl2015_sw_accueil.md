@@ -12,7 +12,7 @@ Concernant le party, afin de souligner l’ouïe déficiente de nos clients, la 
 
 ![jdl2015_img_invitation5](images/jdl2015_img_invitation6.png)
 
-Les festivités se dérouleront à partir du 30 Décembre 2014 à 13h et se termineront le 1er Janvier 2015 au matin.
+Les festivités se dérouleront à partir du 30 décembre 2014 à 13h et se termineront le 1er janvier 2015 au matin.
 
 Visitez notre [section dédiée à l’événement](jdl2015_sw_jdl.md) et assurez-vous d’être présent pour ce qui promet d’être le plus grand rassemblement de vieux criss et de vieilles désagréables jamais vu!
 
