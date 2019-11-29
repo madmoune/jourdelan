@@ -6,7 +6,7 @@ Pour tous les gens inscrits, nous demandons :
 
 - **15$ pour couvrir les frais** de couches et de mangers mous.
 - Pour notre album des résidents :
-  - **Une photo de vous** dans le style permis de conduire, mais avec un sourire.
+  - **Une photo de vous** dans le style permit de conduire, mais avec un sourire.
     - Quatre lignes pour aller avec votre photo :
       - **Citation** : Une citation qui vous représente ou qui vous inspire. Vous pouvez l’inventer ou en prendre une vraie.
       - **Activités** : Vraies ou inventées.
@@ -19,7 +19,7 @@ Consultez la section [FAQ](jdl2015_sw_faq.md) pour connaître tous les élément
 
 ### Arrivée des futurs résidents
 
-Les futurs résidents sont attendus le 30 Décembre 2014 à partir de 13 heures. Déposez votre canne et vos lunettes à double foyer à l’entrée et détendez-vous dans la salle de danse en ligne sur nos divans thérapeutiques. Un de nos employés se fera un plaisir de vous faire visiter les lieux, et ce, sans remarque déplacée sur votre odeur corporelle.
+Les futurs résidents sont attendus le 30 décembre 2014 à partir de 13 heures. Déposez votre canne et vos lunettes à double foyer à l’entrée et détendez-vous dans la salle de danse en ligne sur nos divans thérapeutiques. Un de nos employés se fera un plaisir de vous faire visiter les lieux, et ce, sans remarque déplacée sur votre odeur corporelle.
 
 Par la suite, on vous guidera vers une chambre spécialement préparée pour vous. Direction, le dortoir commun!
 
@@ -29,13 +29,13 @@ Pour tout connaître sur nos locaux, visitez la section [Résidence](jdl2015_sw_
 
 En effet, pour maximiser les souvenirs de votre jeunesse, vous serez installés dans une pièce exiguë avec tous les autres résidents, vous rappelant à quel point vous aimiez votre chambre dans la maison de vos parents! Rien de mieux que d’entendre Roger ronfler comme une souffleuse et lâcher un gros pet pour vous permettre d’apprécier les années où vous pouviez dormir sans votre C-PAP. En plus, c’est comme quand vous alliez coucher chez votre ami à 15 ans, mais sans écouter La Clique avant de fermer les yeux!
 
-En déposant vos choses, prenez garde de ne pas vous endormir pour votre 3ième sieste de la journée, car une activité spéciale vous attend en après-midi!
+En déposant vos choses, prenez garde de ne pas vous endormir pour votre 3e sieste de la journée, car une activité spéciale vous attend en après-midi!
 
 ### Partie de ~~pétanque~~ hockey!
 
 Oubliez la pétanque durant les portes ouvertes, car on veut vous replonger dans le temps où avec les pieds gelés, vous alliez vous faire humilier par des kids deux fois moins vieux que vous autres à la patinoire! Ah, que de bons souvenirs! Préparez vos patins, votre canne avec une palette et votre habillement le plus chaud, car nous allons aller fouler la surface glacée une dernière fois avant de vous enfermer chez nous pour de bon! On jouera du bon vieux hockey comme dans le temps d’Eddy Shore!
 
-Situation possible lors du match du 30 Décembre : (https://www.youtube.com/watch?v=-WZ0uRJOatQ)[https://www.youtube.com/watch?v=-WZ0uRJOatQ]
+Situation possible lors du match du 30 décembre : (https://www.youtube.com/watch?v=-WZ0uRJOatQ)[https://www.youtube.com/watch?v=-WZ0uRJOatQ]
 
 Pendant la partie, gardez vos bâtons bas pour éviter les blessures au niveau du visage. Votre beau dentier et vos yeux nouvellement sans cataracte, ça vaut cher!
 
@@ -59,9 +59,9 @@ Après le souper, un interlude pour vous permettre de voir à quoi ressemblera v
 
 ### Tournoi Cœur d’enfant!
 
-Une fois vos facultés affaiblies comme il se doit, vous aurez droit au clou de la soirée du 30 Décembre! Une compétition par équipe de trois est prévue afin de voir lesquels d’entre vous sont les plus jeunes de cœur! Des chefs seront sélectionnés et pourront choisir les membres de leur clan, ainsi que leur nom d’équipe. Ça vous rappelle-tu le ballon-chasseur dans la cour d’école ça? Le tournoi Cœur d’Enfant récompensera adéquatement l’équipe qui obtiendra le plus de points!
+Une fois vos facultés affaiblies comme il se doit, vous aurez droit au clou de la soirée du 30 décembre! Une compétition par équipe de trois est prévue afin de voir lesquels d’entre vous sont les plus jeunes de cœur! Des chefs seront sélectionnés et pourront choisir les membres de leur clan, ainsi que leur nom d’équipe. Ça vous rappelle-tu le ballon-chasseur dans la cour d’école ça? Le tournoi Cœur d’Enfant récompensera adéquatement l’équipe qui obtiendra le plus de points!
 
-Voici les équipes dans lesquelles vous pourriez vous retrouver, tous nommées en l’honneur d’une maladie qui vous attend bientôt:
+Voici les équipes dans lesquelles vous pourriez vous retrouver, toutes nommées en l’honneur d’une maladie qui vous attend bientôt:
 
 - L’équipe des amateurs de voitures : **Cholestérolls Royce!**
 - L’équipe des Don Juan avec des pickup lines: **Infactusens bonne!**
@@ -103,13 +103,13 @@ Si vous pouviez faire un effort pour ne pas mourir pendant votre sommeil, cela n
 
 ### Déjeuner
 
-À votre probable réveil le 31 Décembre, vous serez accueillis dans la cafétéria comme des rois. Nous aurons parmi nous un as cuisinier qui fut dans son jeune temps un des membres de la brigade culinaire des Jeux Olympique! (Les Jours Delanpiques en fait. C’est presque pareil.)
+À votre probable réveil le 31 décembre, vous serez accueillis dans la cafétéria comme des rois. Nous aurons parmi nous un as cuisinier qui fut dans son jeune temps un des membres de la brigade culinaire des Jeux olympiques! (Les Jours Delanpiques en fait. C’est presque pareil.)
 
 Pains dorés, crêpes, gaufres, œufs bénédictines, cocktails de fruits, bagels au saumon fumé, yogourts onctueux, un shitload de bacon, voici des choix qu’on voit parfois dans les restaurants. Nous, on a fuckall idée de ce que le chef va vous cuisiner, et honnêtement, on s’en contre-câlisse.
 
 ### Temps libre pour une dernière fois
 
-Notre bonté est sans limite ici à la **Résidence du P’tit Bum** et nous le démontrerons encore une (dernière) fois. Le 31 Décembre, vous aurez du temps pour faire ce que bon vous semble, jusqu’à l’heure du souper. Peut-être que ce sera le bon moment pour renouer avec la célèbre **Nintendo 64** et voir si vos habilités d’antan avec Donkey Kong sont encore solides à Super Smash Bros?
+Notre bonté est sans limites ici à la **Résidence du P’tit Bum** et nous le démontrerons encore une (dernière) fois. Le 31 décembre, vous aurez du temps pour faire ce que bon vous semble, jusqu’à l’heure du souper. Peut-être que ce sera le bon moment pour renouer avec la célèbre **Nintendo 64** et voir si vos habilités d’antan avec Donkey Kong sont encore solides à Super Smash Bros?
 
 Profitez-en, car dès le lendemain, chaque temps mort servira à contribuer à notre commerce de portefeuilles de contrefaçons. Une bonne façon de garder la main, ainsi que de constater quotidiennement la progression de votre arthrite.
 
@@ -121,7 +121,7 @@ Allez faire un tour sur notre menu et indiquez ce que vous apporterez! Vous sali
 
 ### Échange de cadeaux
 
-Pour vous faire revivre les soirées enivrantes où on attendait le Père Noël avec des biscuits et du lait, un échange de cadeau d’une valeur de 25$ sera de mise! Nous pourrons choisir et voler les cadeaux des autres pendant que de chaudes larmes couleront sur nos joues, parce que dans le temps, on recevait jamais les Ninjas Turtles, le Super Nintendo ou les Barbies qu’on avait demandé. Esti de Père Noël CHEAP!
+Pour vous faire revivre les soirées enivrantes où on attendait le Père Noël avec des biscuits et du lait, un échange de cadeaux d’une valeur de 25$ sera de mise! Nous pourrons choisir et voler les cadeaux des autres pendant que de chaudes larmes couleront sur nos joues, parce que dans le temps, on recevait jamais les Ninjas Turtles, le Super Nintendo ou les Barbies qu’on avait demandé. Esti de Père Noël CHEAP!
 
 ![images/jdl2015_img_evenement1.jpg](jdl2015_img_evenement1.jpg)
 
@@ -154,7 +154,7 @@ Pour ceux qui auront besoin de contrôler leurs douleurs, ou encore qui voudront
 
 Serez-vous assez *game* d’en essayer?
 
-De plus, immédiatement après la célébration du nouvel an (avec mousseux, il va sans dire!), nous sacrerons **le Roi et la Reine du Bal**! Ils remporteront un prix pas piqué des vers! Ne vous endormez pas avant ça!
+De plus, immédiatement après la célébration du Nouvel An (avec mousseux, il va sans dire!), nous sacrerons **le Roi et la Reine du Bal**! Ils remporteront un prix pas piqué des vers! Ne vous endormez pas avant ça!
 
 ### Fin de la fête, début des travaux
 
