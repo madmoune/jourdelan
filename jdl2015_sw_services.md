@@ -2,7 +2,7 @@
 
 Les services offerts par notre résidence sont très variés afin convenir à un grand éventail de vieux câlisses. À la Résidence du P’tit Bum nos employés se font un devoir gérer les cas suivants:
 
-- Gestion des pets sauces (Comprend le lavage du p’tit vieux et le service de buanderie pour ses culottes).
+- Gestion des pets sauce (Comprend le lavage du p’tit vieux et le service de buanderie pour ses culottes).
 - Tonte de poils d’oreille et de nez.
 - Oreille attentive pour écouter les mêmes histoires des maudits radoteux encore et encore.
 - Distribution de médicaments (Possibilité de distribution aléatoire pour plus de plaisir).
@@ -56,7 +56,7 @@ Nous vous conseillons d’appeler l’ambulance par la suite, juste pour être c
 
 ### Service de notaire
 
-Vous êtes les héros de vos enfants! Grâce à vous et à l’éducation que vous leur avez donné, ils ont pu devenir de bonnes personnes avec de bonnes valeurs. Voulez-vous vraiment détruire tous vos efforts en leur garochant un shitload d’argent comme héritage? Pensez à toute la drogue et les prostituées qu’ils vont se payer…
+Vous êtes les héros de vos enfants! Grâce à vous et à l’éducation que vous leur avez donné, ils ont pu devenir de bonnes personnes avec de bonnes valeurs. Voulez-vous vraiment détruire tous vos efforts en leur garrochant un shitload d’argent comme héritage? Pensez à toute la drogue et les prostituées qu’ils vont se payer…
 
 Comme vous n’êtes pas idiots, malgré la démence qui s’installe tranquillement, la résidence vous propose l’alternative la plus logique pour votre testament. Léguez-nous votre fortune. Notre notaire maison se fera un plaisir de rédiger vos dernières volontés à votre place, sans droit de regard de votre part. Vous n’aurez qu’à signer et le tour se joué!
 
