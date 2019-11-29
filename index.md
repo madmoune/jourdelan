@@ -38,6 +38,7 @@ Le *Tournoi Coeur d'Enfant* est la compétition officielle de ce JDL. Un des tou
 - Après des performances inspirées de Frank, Geneviève, Laurie et Stéphanie, ce fut le tour de Seb d'être magané en maudit. Être couché avant le décompte de la nouvelle année, faut le faire, on lui lève notre chapeau.
 - Incursion dans le futur: le mur des résidents présenta une photo de ce qu'aurait l'air tous les participants quand ils seraient plus vieux. On regarde aujourd'hui et ça s'en rapproche dangereusement!
 - Des médicaments douteux étaient disponibles à la résidence, c'est-à-dire, des jelly beans aux saveurs extrêmement variées! Un bon truc pour être certain de pas gouter à celui au vomi? L'avaler comme une pilule, sans croquer!
+- On vous invite à vérifier si [ces points soulevés il y a 5 ans](jdl2015_sw_epm.md) vous rejoigne encore plus qu'à l'époque!
 
 ---
 
