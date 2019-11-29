@@ -123,7 +123,7 @@ Allez faire un tour sur notre menu et indiquez ce que vous apporterez! Vous sali
 
 Pour vous faire revivre les soirées enivrantes où on attendait le Père Noël avec des biscuits et du lait, un échange de cadeaux d’une valeur de 25$ sera de mise! Nous pourrons choisir et voler les cadeaux des autres pendant que de chaudes larmes couleront sur nos joues, parce que dans le temps, on recevait jamais les Ninjas Turtles, le Super Nintendo ou les Barbies qu’on avait demandé. Esti de Père Noël CHEAP!
 
-![images/jdl2015_img_evenement1.jpg](jdl2015_img_evenement1.jpg)
+![images/jdl2015_img_evenement1.jpg](images/jdl2015_img_evenement1.jpg)
 
 Pour apaiser notre peine, nous la noierons dans l’alcool pour le restant de la soirée. Mais avant cela, nous demandons votre collaboration pour nettoyer le buffet, le comptoir et le papier d’emballage. On va toute crisser ça dans le garage et on le regrettera plus tard, lors du ménage du lendemain!
 
@@ -133,9 +133,7 @@ Sortez vos **plus beaux habits**! Comme dans notre jeune temps, nous retournons 
 
 Rappelez-vous, lorsque nous étions les terreurs de la piste de danse, les champions de la bière en galon, les tueurs de soirées plates!
 
-On était comme Dave!
-
-[https://www.youtube.com/watch?v=3BbnqlTxGgo](https://www.youtube.com/watch?v=3BbnqlTxGgo)
+[On était comme Dave!](https://www.youtube.com/watch?v=3BbnqlTxGgo)
 
 Maintenant, on est encore comme Dave, mais c’est parce qu’on est magané.
 
