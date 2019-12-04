@@ -53,16 +53,14 @@ Afin de s'immerser dans l'ambiance du **Jour de l'An**, nous vous invitons à pa
 
 La doctorante SAQarol Dupont, suprémaciste blanche des vins, vous donnera une classe de maître sur la vie de Robert Mondavi.
 
-#### Activité Optionnelle Spéciale: Génie en Herbe
+#### Activité Optionnelle Spéciale: Votes et Élections
 
 ***Heure***: de 19h à 20h.
-***Professeur***: Professeur Crissdenerd
+***Professeur***: Professeur DGE
 
-Si vous pensez vous être bien préparé à ce cours d'***Histoire du Jour de l'An 101***, alors nous proposons de venir compétitionner dans notre partie de Génie en Herbe! Un affrontement entre 8 des meilleurs étudiants nous permettra de voir si vous avez bien fait vos devoirs!
+Afin de célébrer comme il se doit la 10e édition du **Jour de l'An**, nous nominerons et voterons pour élire des gagnants dans plusieurs catégories marquantes. Soyez présents, ça va comme être choisir un roi et une reine du bal, mais pas vraiment.
 
-Évidemment, un prix aux gagnants, mais surtout la chance de *bragger* pour le reste du cours.
-
-Professeur Crissdenerd vous regardera de haut avec ses questions beaucoup trop nichées.
+Professeur DGE s'assurera d'avoir un bon taux de participation et qu'aucune faudre ne soit commise!
 
 #### Travail Pratique #2: Déjeuner Mythique
 
