@@ -30,7 +30,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ***Quiz***: [Le Quiz Réseau-Contact](jdl2016_quiz.md)
 
-Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, parce que c'est drôle de dépenser de l'argent sur des timbres juste pour une blague. Voici le faire part que certains invités ont reçu.
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, parce que c'est drôle de dépenser de l'argent sur des timbres juste pour une blague. Voici le faire part que les invités ont reçu.
 
 ![images/jdl2016_img_fairepart.PNG](images/jdl2016_img_fairepart.PNG)
 
