@@ -20,6 +20,31 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
+### Lecture #6: 6 Décembre 2019 / Jour de l'an 2016 (6ième édition)
+
+***Thème***: Le Mariage
+
+***Nom***: Le Mariage de Yolande et Roger
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2016.](jdl2016_invitation.md)
+
+***Quiz***: [Le Quiz Réseau-Contact](jdl2016_quiz.md)
+
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, parce que c'est drôle de dépenser de l'argent sur des timbres juste pour une blague. Voici le faire part que certains invités ont reçu.
+
+![images/jdl2016_img_fairepart.PNG](images/jdl2016_img_fairepart.PNG)
+
+Rendu à la 6ième édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
+
+Avec un thème rendant hommage à l'amour, il allait de soit que ça prenait un un site de rencontre! Ce fut donc le thème du préquiz, [disponible ici](jdl2016_quiz.md).
+
+#### Fun Facts
+- Le tapis rouge d'OD a fait une apparition lors de la sélection des équipes pour le tournoi Oréo & Joliette. Il est ensuite retourné dans la salle de bain du sous-sol.
+- Un *shitload* de bagues étaient disponbiles afin de demander la main de nos ami(e)s, dans la plus grande tradition de la Polygamoune.
+- Cette année-là, un concours de photo du photobooth fut organisé. Le gagnants furent Vincent et Maxime qui reçurent une voiture (miniature)!
+
+---
+
 ### Lecture #5: 29 Novembre 2019 / Jour de l'an 2015 (5ième édition)
 
 ***Thème***: La résidence P'tit Bum
