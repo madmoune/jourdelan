@@ -18,16 +18,17 @@ C'est pourquoi Karo et moi nous sommes dits que tant qu'à fréquenter des p'tit
 
 ![images/jdl2017_img_intro1.jpg](images/jdl2017_img_intro2.jpg)
 
-Mais pour être honnête, derrière tout ce projet un peu spécial, se cache une volonté de changement et un altruisme véritable que nous ne pouvons réprimer.
+Mais pour être honnête, derrière tout ce projet un peu spécial, se cachent une volonté de changement et un altruisme véritable que nous ne pouvons réprimer.
 
-Peu le savent, mais après une année de pratique, Karo a pu constater par elle-même l'échec de la médecine moderne dans nos hôpitaux. C'est plate, mais éliminer la polyo, c’est un résultat bien en-deçà des attentes quand on pense que Matt Damon a pu survivre plusieurs mois sur Mars. Clairement, on nous cache quelque chose. On nous garde dans l’ignorance, probablement pour contrôler nos esprits! Ou peut-être est-ce parce que nos leaders ne sont pas vraiment qui nous croyons qu’ils sont? Que complotent-ils derrière les portes closes?
+Peu le savent, mais après une année de pratique, Karo a pu constater par elle-même l'échec de la médecine moderne dans nos hôpitaux. C'est plate, mais éliminer la polyo, c’est un résultat bien en deçà des attentes quand on pense que Matt Damon a pu survivre plusieurs mois sur Mars. Clairement, on nous cache quelque chose. On nous garde dans l’ignorance, probablement pour contrôler nos esprits! Ou peut-être est-ce parce que nos leaders ne sont pas vraiment qui nous croyons qu’ils sont? Que complotent-ils derrière les portes closes?
 
-Quoiqu’il en soit, il faut se rendre à l'évidence, c'est le système complet qui est malade et qui doit être combattu! C'est pourquoi, dans une optique de prévention pour les générations futures, **Pepipandor** sera une garderie **bio**, **alternative** et **conspirationniste**!
+Quoi qu’il en soit, il faut se rendre à l'évidence, c'est le système complet qui est malade et qui doit être combattu! C'est pourquoi, dans une optique de prévention pour les générations futures, **Pepipandor** sera une garderie **bio**, **alternative** et **conspirationniste**!
 
 Finie l'éducation basée sur l'opinion de la science! Nous offrirons enfin un environnement approprié au développement d'**ÊTRES HUMAINS SAINS** et non de vulgaires conformistes soumis au contrôle du gouvernement!
 
-Si vous tenez à ce que la prochaine génération en soit une en santé, avec un alignement parfait de chakras et sans micro-puces pour contrôler leur esprit, vous savez où inscrire vos enfants!
+Si vous tenez à ce que la prochaine génération en soit une en santé, avec un alignement parfait de chakras et sans micropuces pour contrôler leur esprit, vous savez où inscrire vos enfants!
 
 Mais ne décidez pas sans connaître les **VRAIS FAITS**! On nous cache trop souvent la vérité et ce n'est pas un modèle que nous voulons suivre. Nous vous offrons donc de venir passer une année complète dans notre garderie afin d'y voir le fonctionnement et de faire le **BON CHOIX**!
 
 **COMBATTEZ LE LOBBY DU COMPLOT POUR VOS ENFANTS!**
+
