@@ -6,7 +6,7 @@ Bienvenue sur le site de notre mariage!
 
 Eh oui! Finalement, après toutes ces années à se côtoyer et à s’aimer, Roger a fait la grande demande! C’est donc avec bonheur que nous nous marierons le 30 Décembre 2015 prochain! Et afin de faire durer le plaisir, la fête se poursuivra jusqu’au 1er Janvier 2016! Nous espérons de tout cœur que vous puissiez être avec nous pendant ce moment qui sera si précieux!
 
-La cérémonie ainsi que la réception auront lieu à l’hôtel Hébergemoune-Carreaux, située à St-Célestin et dont l’adresse figure sur votre carton d’invitation. Cet établissement luxueux saura vous faire sentir à votre aise tout au long de notre mariage et nous sommes confiants que le décor enchanteur donnera une touche de fantaisie à la cérémonie!
+La cérémonie ainsi que la réception auront lieu à l’hôtel Hébergemoune-Carreaux, situé à St-Célestin et dont l’adresse figure sur votre carton d’invitation. Cet établissement luxueux saura vous faire sentir à votre aise tout au long de notre mariage et nous sommes confiants que le décor enchanteur donnera une touche de fantaisie à la cérémonie!
 
 Ci-bas vous trouverez un horaire approximatif et les informations nécessaires afin d’être prêts lors de notre grande journée! Nous avons très hâte de partager ce moment très important avec vous!
 
@@ -23,12 +23,12 @@ Nous savons que c’est probablement la meilleure idée de thème que vous ayez 
 
 Vous me direz que cette description-là fait référence uniquement à OD et c’est vrai. Le côté Double Dragon, c’est pour pimenter votre séjour de plusieurs combats/compétitions! Ils seront identifiés tout au long de cette page. Mais revenons à OD un instant.
 
-C’est donc tous ensemble, réunis sous la bannière d’une œuvre télévisuelle culte, que nous célèbrerons l’amour le plus pure qui soit avec un thème qui nous ressemble, qui nous touche, qui nous bouleverse même, tellement son authenticité est absolue.
+C’est donc tous ensemble, réunis sous la bannière d’une œuvre télévisuelle culte, que nous célèbrerons l’amour le plus pur qui soit avec un thème qui nous ressemble, qui nous touche, qui nous bouleverse même, tellement son authenticité est absolue.
 
 Pour profiter au maximum du thème, voici quelques indications qui vous aideront à vous imprégner de l’esprit que nous souhaitons instaurer lors du mariage.
 Style de vie lors du mariage
 
-Quand on parle d’Occupation Double, on parle d’amour et de rencontres! Nous aimerions donc profiter du grand rassemblement que sera notre mariage pour en faire la promotion! Pour se faire, nous aimerions agir à titre de catalyseur de l’amour! Nous aurons tout sur place pour favoriser l’évolution de vos relations. Par exemple:
+Quand on parle d’Occupation Double, on parle d’amour et de rencontres! Nous aimerions donc profiter du grand rassemblement que sera notre mariage pour en faire la promotion! Pour ce faire, nous aimerions agir à titre de catalyseur de l’amour! Nous aurons tout sur place pour favoriser l’évolution de vos relations. Par exemple:
 
 - Un célébrant spécial sera présent. Rien de mieux pour renouveler vos vœux de mariage, ou encore vous marier sur le side! (Valide seulement à St-Célestin et Las Vegas)
 - Un service style Réseau Contact! Profitez gratuitement de ce programme pour voir avec qui vous feriez un beau couple!
@@ -37,7 +37,7 @@ Quand on parle d’Occupation Double, on parle d’amour et de rencontres! Nous 
 - Célibataire? Vous commencez à vous y faire? Un instant! Il y a des gens pour vous qui sont tout près de l’hôtel! Dans le jargon, ils sont appelés Hot single moms et Horny single dads!
 - Vous êtes du type Blind Date? Déballez un dangereux cadeau de votre matante Dr.Vielle Folle! Avec tous les couteaux de cachés pour faire du poids, y risque de pas avoir juste vos dates qui seront aveugles!
 
-Je vous entends déjà dire: “Ouin, mais là, j’suis déjà pogné en couple moé, y’a pas grands choses qui s’offrent pour les gens tristes comme nous.”
+Je vous entends déjà dire: “Ouin, mais là, j’suis déjà pogné en couple moé, y’a pas grand-chose qui s’offrent pour les gens tristes comme nous.”
 
 Détrompez-vous! Comme pour Occupation Double, nous changeons les règles de l’amour le temps du mariage! Vous avez entendu parler de la polygamie? La polygamie désigne la situation dans laquelle une personne dispose au même moment de plusieurs conjoints. Nice hen? Et bien oubliez ça, c’est illégal au Canada. Mais avez-vous entendu parler de la polygamoune? Non? Voici la définition:
 
@@ -79,7 +79,7 @@ Comme mentionné, nous offrons aussi le service de rencontre! Nous vous invitons
 
 En remplissant le formulaire, vous pourrez participer au concours dont le prix sera, en plus de trouver l’amour, un point boni lors de notre dégustation de vins d’honneur! Nous vous fournirons aussi les résultats de nos savants calculs servant à identifier quelles personnes sont compatibles avec vous, selon la polygamoune!
 
-La manière de fonctionner est simple. Vous remplissez votre nom, vous vous trouvez un surnom de l’amour, vous parlez de vos passions et finalement vous indiquez ce que vous recherchez. Ensuite, lorsque tout le monde sera inscrit, on vous enverra la liste et vous devrez associer les bons surnom/passion/recherche à la bonne personne!
+La manière de fonctionner est simple. Vous remplissez votre nom, vous vous trouvez un surnom de l’amour, vous parlez de vos passions et finalement vous indiquez ce que vous recherchez. Ensuite, lorsque tout le monde sera inscrit, on vous enverra la liste et vous devrez associer les bons surnoms/passion/recherche à la bonne personne!
 
 Exemple d’une personne fictive:
 
@@ -151,12 +151,12 @@ Voici quelques informations complémentaires pour faciliter votre présence parm
 
 ##### Arrivée
 
-Votre arrivée à l’hôtel peut se faire dès 13h00 le 30 Décembre 2015. Mettez-vous à votre aise en savourant une bonne bière spécialement brassée par Molson que vous aurez acheté au préalable. L’hôtel et ses environs présentent un paysage onirique, alors n’hésitez pas à découvrir cet endroit merveilleux. La cour arrière offre d’ailleurs une vue imprenable sur l’usine à poches de patate, un lieu historique s’il en est un.
+Votre arrivée à l’hôtel peut se faire dès 13h00 le 30 Décembre 2015. Mettez-vous à votre aise en savourant une bonne bière spécialement brassée par Molson que vous aurez achetée au préalable. L’hôtel et ses environs présentent un paysage onirique, alors n’hésitez pas à découvrir cet endroit merveilleux. La cour arrière offre d’ailleurs une vue imprenable sur l’usine à poches de patates, un lieu historique s’il en est un.
 Hébergement
 
-Pour garantir votre satisfaction en tant qu’invités, une chambre vous sera réservée gratuitement lorsque vous confirmerez votre présence. Évidemment, pour respecter l’esprit d’OD, les gars et les filles auront leur propre chambre, affectueusement nommé la “Maison des Gars” et la “Maison des Filles”. On se croirait à la télé! Cette chambre vous accueillera pendant deux nuits de détente absolue, vous assurant un niveau d’énergie élevé pour la cérémonie du 30 ainsi que la grande fête du 31! 1
+Pour garantir votre satisfaction en tant qu’invités, une chambre vous sera réservée gratuitement lorsque vous confirmerez votre présence. Évidemment, pour respecter l’esprit d’OD, les gars et les filles auront leur propre chambre, affectueusement nommée la “Maison des Gars” et la “Maison des Filles”. On se croirait à la télé! Cette chambre vous accueillera pendant deux nuits de détente absolue, vous assurant un niveau d’énergie élevé pour la cérémonie du 30 ainsi que la grande fête du 31! 1
 
-La chambre inclut un foyer ainsi qu’une douche-détente vous permettant de reposer vos jambes tout en vous lavant. La douche offre aussi divers jets qui relaxeront les plus tendus d’entre vous. De plus, un petit déjeuner vous sera servi le 31 au matin, préparé par notre chef cuisinier à l’expérience inégalable.2
+La chambre inclut un foyer ainsi qu’une douche-détente vous permettant de reposer vos jambes tout en vous lavant. La douche offre aussi divers jets qui relaxeront les plus tendus d’entre vous. De plus, un petit déjeuner vous sera servi le 31 au matin, préparé par notre chef cuisinier à l’expérience inégalable.
 
 ##### Compétition amicale de hockey (Double Dragon #3!)
 
@@ -169,7 +169,7 @@ Assez inusité d’organiser un match de la sorte lors d’un mariage, n’est-c
 - Des lancés frappés.
 - Du jeu robuste.
 - Des coups de bâtons sur les mollets.
-- Des double-échecs dans les côtes.
+- Des doubles-échecs dans les côtes.
 - Des slashings vicieux.
 - Des coups de coude à la tête.
 - Du sang et des lésions permanentes.
@@ -200,7 +200,7 @@ Afin de poursuivre dans la veine de la compétition, notre cérémonie de mariag
 
 ***Le tournoi Oréo et Joliette!***
 
-Le nom est une référence cinémato-culturelle qui allie notre passion pour les films, les biscuits et Lanaudière.
+Le nom est une référence cinématoculturelle qui allie notre passion pour les films, les biscuits et Lanaudière.
 
 Pour le tournoi, des équipes de trois seront formées. Évidemment, qui dit sélection de joueurs dit:
 
@@ -227,7 +227,7 @@ Au petit matin, les gémissements cesseront lorsque le déjeuner sera prêt! Ce 
 
 ###### Détente et préparation
 
-En attendant la fête en soirée, quoi de mieux qu’un peu de détente! Prévalez-vous de vos privilèges dans notre spa ainsi que notre sauna. Notre spa possède seulement une place (possiblement deux, si un robinet dans le dos ne vous fait pas peur) et est situé au rez-de-chaussée, juste à côté de la bolle. Parfait pour partager un moment intime en amoureux. En ce qui concerne le sauna, nous vous invitons à vous asseoir proche du four avec un sceau d’eau.
+En attendant la fête en soirée, quoi de mieux qu’un peu de détente! Prévalez-vous de vos privilèges dans notre spa ainsi que notre sauna. Notre spa possède seulement une place (possiblement deux, si un robinet dans le dos ne vous fait pas peur) et est situé au rez-de-chaussée, juste à côté de la bolle. Parfait pour partager un moment intime en amoureux. En ce qui concerne le sauna, nous vous invitons à vous asseoir proche du four avec un seau d’eau.
 
 Sinon, comme la soirée risque d’être grandiose, il sera de mise de prendre un peu de temps pour vous mettre beau! Soyez ben swell, pour que dans 15 ans ce dont on se rappelle, c’est le plaisir et non vos bas bruns et vos joggings mous.
 
@@ -241,7 +241,7 @@ Votre participation est tellement de bon cœur que ça nous émerveille au plus 
 
 De plus, juste avant de passer à la soirée dansante, nous improviserons une petite séance d’élimination! À l’instar d’Occupation Double, nous vous offrirons le temps du souper pour réfléchir à qui vous voudriez éliminer pour la soirée! C’est parfait pour passer le message que personne ne peut vous battre au beerpong, ou encore pour laisser savoir aux gens en compétition avec vous que vous n’aurez aucune pitié lors de votre conquête de la maison et de la voiture!
 
-À part de ça, ça fait pas grands choses éliminer quelqu’un. Mais quand même, ça envoie le message que vous êtes là pour respecter l’esprit et le thème de la fête!
+À part de ça, ça fait pas grand-chose éliminer quelqu’un. Mais quand même, ça envoie le message que vous êtes là pour respecter l’esprit et le thème de la fête!
 
 ##### Échange de cadeaux de mariage
 
@@ -286,3 +286,4 @@ Prenez note qu’on déterminera le couple gagnant par un vote du public lors d�
 On se voit le 30 Décembre tout le monde!
 
 Pour vous assurer d’avoir tout ce qu’il faut pour le mariage, consulter la section [FAQ](jdl2016_faq.md)!
+
