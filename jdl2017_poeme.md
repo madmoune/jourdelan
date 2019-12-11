@@ -1,14 +1,14 @@
  ## SOIR D'HIVER MOÉ L'CUL
 
-Asti! comme la neige a tombé criss!
+Asti! comme la neige a tombée criss!
 
 Ma vitre est givrée calisse.
 
-Asti! comme la neige a tombé!
+Asti! comme la neige a tombée!
 
 Quoi cé ça que le spasme de vivre? Pour vrai c'est quoi?
 
-A la douleur que j'ai, que j'ai infligé à ta face!
+Ah la douleur que j'ai, que j'ai infligé à ta face!
 
 _
 
@@ -34,12 +34,13 @@ Aux branches du genévrier (c'est quoi c'te criss de mois-là?).
 
 _
 
-Asti! comme la neige a tombé criss!
+Asti! comme la neige a tombée criss!
 
 Ma vitre est givrée calisse.
 
-Asti! comme la neige a tombé!
+Asti! comme la neige a tombée!
 
 Quoi cé ça que le spasme de vivre? Pour vrai c'est quoi?
 
-A tout l'ennui que j'ai, que j'ai à lire des tabarnak de POÈME DE CUL!
+Ah tout l'ennui que j'ai, que j'ai à lire des tabarnak de POÈME DE CUL!
+
