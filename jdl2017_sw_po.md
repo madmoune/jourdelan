@@ -12,9 +12,9 @@ Inscrivez-vous sans plus tarder!
 
 Vous serez ensuite dirigés vers vos quartiers où l’on vous remettra le kit de base du soldat de demain :
 - Un casque d’aluminium pour contrer le contrôle des esprits.
-- Un masque pour filtrer les chemtrails qui pourraient s’être frayés un chemin à travers nos conduits d’aération.
+- Un masque pour filtrer les chemtrails qui pourraient s’être frayé un chemin à travers nos conduits d’aération.
 - Une bouteille d’eau, parce que le fluor et autres toxines que le gouvernement met dans l’eau pour « notre bien », on n’en veut pas!
-- Des médicaments maisons pour votre santé et pour éviter d’utiliser ceux des pharmaceutiques. Pourquoi ces grandes compagnies voudraient-elles vraiment nous guérir, avec tout l’argent qu’elles font sur notre dos? Plus de maladies, plus d’argent! C’est louche!
+- Des médicaments maison pour votre santé et pour éviter d’utiliser ceux des pharmaceutiques. Pourquoi ces grandes compagnies voudraient-elles vraiment nous guérir, avec tout l’argent qu’elles font sur notre dos? Plus de maladies, plus d’argent! C’est louche!
 
 Avec tout cela, pas de danger d’être infiltré!
 
@@ -22,13 +22,13 @@ Nous apprécierions si chaque individu utilisait son propre véhicule pour se re
 
 ### Activités en après-midi
 
-En tant que première garderie bio et alternative, nous souhaitons promouvoir des jeux équitables qui respectent l’humain. C’est pourquoi nous proposons une activité qui allie air frais, bois, eau, glace, plaisir en plein air, coups vicieux et agressivité inutile. Le hockey est donc le sport tout désigné pour enseigner aux enfants l’accomplissement de la violence dans un contexte qui honore Mère Nature. Si vous suivez les consignes concernant le transport, il ne devrait pas y avoir de glace à l’extérieur et nous devrons donc s’ajuster. Mais si vous êtes une bande de moutons dociles face au complot climatique, alors peut-être enfilerons-nous les patins. Faites-le bon choix! **VIVA LA REVOLUTION**!
+En tant que première garderie bio et alternative, nous souhaitons promouvoir des jeux équitables qui respectent l’humain. C’est pourquoi nous proposons une activité qui allie air frais, bois, eau, glace, plaisir en plein air, coups vicieux et agressivité inutile. Le hockey est donc le sport tout désigné pour enseigner aux enfants l’accomplissement de la violence dans un contexte qui honore Mère Nature. Si vous suivez les consignes concernant le transport, il ne devrait pas y avoir de glace à l’extérieur et nous devrons donc s’ajuster. Mais si vous êtes une bande de moutons dociles face au complot climatique, alors peut-être enfilerons-nous les patins. Faites le bon choix! **VIVA LA REVOLUTION**!
 
 ### Souper du 30
 
 Une alimentation saine est un élément important de l’entrainement d’un bon guerrier. C’est pourquoi nous n’offrons pas de Mind Control Junk Food, comme nous aimons désigner toute nourriture provenant de n’importe où sauf notre potager bio sans OGM. Cette année, la récolte de saucisses semble excellente et nous espérons pouvoir en fournir assez pour constituer le repas du 30 Décembre!
 
-Si vous êtes plus du type capitaliste-soumis, vous pourrez vous commander de la *BigCorpFood* chez Pizza Dit’Ally, ou encore pour les plus nostalgiques, chez Roy et Diane.
+Si vous êtes plus du type capitaliste soumis, vous pourrez vous commander de la *BigCorpFood* chez Pizza Dit’Ally, ou encore pour les plus nostalgiques, chez Roy et Diane.
 
 Un bon truc pour votre culture de saucisses : Arrosez-les quotidiennement avec de l’eau de lune! La peau de votre saucisse deviendra ferme, sa chair sera juteuse et toutes les toxines ainsi que les glutens seront éliminés!
 
@@ -44,9 +44,9 @@ Les meilleures recrues se verront attribuer des quartiers privés pour le restan
 
 Afin de vous mettre dans l’ambiance de ce challenge, nous le débuterons à l’instant avec un pré-défi. Envoyez-nous votre plus beau dessin! Celui-ci doit représenter votre vision du Grand Moumou. S’en suivra un quiz et le gagnant dudit quiz recevra un point boni pour la dégustation d’alcool. VIVE MOUMOU!
 
-### Arts martiaux et auto-défense
+### Arts martiaux et autodéfense
 
-On sait que leur petite taille améliore leur survie, car ils sont plus difficiles à viser, mais il n’y a pas que des avantages à être un enfant soldat. Entre autre, leurs muscles tout faibles les rendent particulièrement vulnérables au corps-à-corps, ce qui est embêtant quand vient le temps de s’infiltrer dans le bunker secret du gouvernement!
+On sait que leur petite taille améliore leur survie, car ils sont plus difficiles à viser, mais il n’y a pas que des avantages à être un enfant soldat. Entre autres, leurs muscles tout faibles les rendent particulièrement vulnérables au corps-à-corps, ce qui est embêtant quand vient le temps de s’infiltrer dans le bunker secret du gouvernement!
 
 Heureusement, l’égalité des sexes vient à notre rescousse ici! En fait, la non-égalité des sexes au niveau militaire. La piètre représentation des femmes dans ce milieu nous assure un point faible que même un enfant peut exploiter :
 
@@ -54,7 +54,7 @@ Heureusement, l’égalité des sexes vient à notre rescousse ici! En fait, la 
 
 Un bon coup dans fourche, voilà l’attaque ultime contre un homme qui veut nous empêcher de sauver le monde!
 
-Pour enseigner la technique d’auto-défense parfaite du « kick du sac », aussi connu sous l’art martial du **Kung Furch**, nous avons généralement des ateliers de plusieurs heures chaque semaine. Mais dans le cadre de nos portes ouvertes, nous avons jugé que l’enseignement d’un niveau si élevé d’auto-défense risquait de vous rendre trop puissants pour vous remettre en liberté à la fin de votre séjour. Nous serions obligés de vous garder de force et ce faisant, nous exposerions nous-même à un pied dans la bourse. Ça nous tente pas.
+Pour enseigner la technique d’autodéfense parfaite du « kick du sac », aussi connu sous l’art martial du **Kung Furch**, nous avons généralement des ateliers de plusieurs heures chaque semaine. Mais dans le cadre de nos portes ouvertes, nous avons jugé que l’enseignement d’un niveau si élevé d’autodéfense risquait de vous rendre trop puissants pour vous remettre en liberté à la fin de votre séjour. Nous serions obligés de vous garder de force et ce faisant, nous exposerions nous-mêmes à un pied dans la bourse. Ça nous tente pas.
 
 Par contre, nous vous proposons une alternative amusante qui permettra de s’imprégner de l’esprit du Kung Furch :
 
@@ -71,7 +71,7 @@ Préparez-vous mentalement pour ce grand événement qui vous touchera beaucoup 
 
 ### Nuit tourmentée
 
-Évidemment, afin de bien préparer les futurs soldats, les nuits passées parmi nous seront parsemées de terreurs nocturnes. Un état de stress post-traumatique, ça fait pas juste s’acquérir à la guerre. C’est pourquoi, nous nous sommes équipés d’un écran géant, de speakers trop forts ainsi que de l’outil permettant de garder vos paupières ouvertes qui fait peur dans les films! Cela nous permettra d’amener les petits tannants dans un environnement parfait pour les endurcir mentalement! Grâce à notre setup de feu, nous tenterons d’introduire dans leurs cerveaux et leurs rêves des flashbacks de champs de bataille, des tanks qui explosent et le Petit Jérémy. Et si vous vous sentez lésés d’être exposés à tant d’horreur, nous vous disons : I DON’T CARE!
+Évidemment, afin de bien préparer les futurs soldats, les nuits passées parmi nous seront parsemées de terreurs nocturnes. Un état de stress post-traumatique, ça fait pas juste s’acquérir à la guerre. C’est pourquoi nous nous sommes équipés d’un écran géant, de speakers trop forts ainsi que de l’outil permettant de garder vos paupières ouvertes qui fait peur dans les films! Cela nous permettra d’amener les petits tannants dans un environnement parfait pour les endurcir mentalement! Grâce à notre setup de feu, nous tenterons d’introduire dans leurs cerveaux et leurs rêves des flashbacks de champs de bataille, des tanks qui explosent et le Petit Jérémy. Et si vous vous sentez lésés d’être exposés à tant d’horreur, nous vous disons : I DON’T CARE!
 
 Si jamais il vous est impossible de vous endormir après cela, nous vous conseillons notre [grand choix de films pour vous détendre](jdl2017_sw_films.md)!
 
@@ -79,7 +79,7 @@ Si jamais il vous est impossible de vous endormir après cela, nous vous conseil
 
 Un repas équilibré selon le guide alimentaire canadien, voilà ce dont nos enfants n’ont pas besoin. Trois repas équilibrés, c’est juste bon pour rester mou! Afin de garder nos enfants en état d’alerte, le déséquilibre est de mise. C’est pourquoi nous avons engagé un chef spécial afin de nous préparer un repas bio, sans contaminant pour l’esprit et d’une consistance désagréable.
 
-Ancien combattant du FLG (Front de libération du gluten), il est devenu chef lorsqu’il se rendit compte que les pressions des pharmaceutiques pro-cœliaques étaient trop grandes pour être combattues. Aujourd’hui, il libère le gluten de nos aliments pour les transformer en bombes qui combattront l’envahisseur, car tout le monde sait que c’est hautement explosif. Particulièrement au niveau de votre péteux, si vous voyez ce que je veux dire.
+Ancien combattant du FLG (Front de libération du gluten), il est devenu chef lorsqu’il se rendit compte que les pressions des pharmaceutiques procœliaques étaient trop grandes pour être combattues. Aujourd’hui, il libère le gluten de nos aliments pour les transformer en bombes qui combattront l’envahisseur, car tout le monde sait que c’est hautement explosif. Particulièrement au niveau de votre péteux, si vous voyez ce que je veux dire.
 
 Merci **Grand Chef**, grâce à vous, nos enfants seront bien nourris et nos bols de toilettes resteront propres!
 
@@ -118,14 +118,14 @@ Voici la liste des tortures en soirée :
 - **Torture par la musique**: Des bruits intenses et festifs seront joués, en plus de tous les gens qui chanteront. Acouphène assuré.
 - **Épuisement physique**: Des heures et des heures sur la piste de danse testeront vos limites!
 - **Empêcher de dormir**: Le rythme, la musique, l’alcool, le fait que vous êtes parkés en double, tout ça vous empêchera de dormir.
-- **Sérum de vérité**: Nous vous ferons boire nos sérums maisons afin de vous faire parler. Après le ¾ d’une bouteille de **Jack au Miel**, saurez-vous tenir votre langue?
-- **Interrogatoire brutal**: Au cours de la soirée, vous subirez un long interrogatoire qui durera jusqu’à temps que vous répondiez aux questions. Frissons dans le dos garantis. On vous demandera :
+- **Sérum de vérité**: Nous vous ferons boire nos sérums maison afin de vous faire parler. Après le ¾ d’une bouteille de **Jack au Miel**, saurez-vous tenir votre langue?
+- **Interrogatoire brutal**: Au cours de la soirée, vous subirez un long interrogatoire qui durera jusqu’à tant que vous répondiez aux questions. Frissons dans le dos garantis. On vous demandera :
   - Fake, qu’est-ce qu’on te souhaite pour cette année?
   - TOÉ TU TROUVES-TU COMME MOÉ QU’ON A UNE BELLE GANG? 😥
 
 Si vous passez à travers la soirée sans fléchir devant les tactiques ennemies, alors nous vous laisserons repartir le 1er au matin. Par contre, dans le cas contraire, nous vous prendrons en otage et demanderons une rançon au gouvernement! **À BAS LES TRAITRES**!
 
-De plus, dans le cadre de nos activités de financement, nous vendons des produits naturels pour favoriser la santé des gens. Tant qu’à vous avoir tous réunis en nos murs, nous aimerions profiter de votre expertise afin de créer de nouveaux produits! Vous pourrez concocter de nouvelles recettes grâce à notre **Bar Santé**, où vous pourrez mélanger médecine alternative, signes du zodiac et alcool fort!
+De plus, dans le cadre de nos activités de financement, nous vendons des produits naturels pour favoriser la santé des gens. Tant qu’à vous avoir tous réunis en nos murs, nous aimerions profiter de votre expertise afin de créer de nouveaux produits! Vous pourrez concocter de nouvelles recettes grâce à notre **Bar Santé**, où vous pourrez mélanger médecine alternative, signes du zodiaque et alcool fort!
 
 Par exemple :
 - Une homéopatéquila
@@ -146,9 +146,9 @@ Comme tout endroit renfermant des informations secrètes, nous sommes munis d’
 
 ### Conclusion
 
-En terminant, nous espérons vous voir en grand nombre lors de nos portes ouvertes. Nous savons que vous serez convaincus de donner vos enfants à l’ultime bataille que nous livrons contre à peu près tout ce qui existe. C’est une décision difficile, mais c’est la seule qui soit juste. Votre argent et votre descendance participeront à détruire les terroristes qui nous gouvernent, et s’il reste de l’argent, nous combattront aussi les méchants islamistes de Turquie. Nous appellerons ce dernier combat, La Guerre des Turques.
+En terminant, nous espérons vous voir en grand nombre lors de nos portes ouvertes. Nous savons que vous serez convaincus de donner vos enfants à l’ultime bataille que nous livrons contre à peu près tout ce qui existe. C’est une décision difficile, mais c’est la seule qui soit juste. Votre argent et votre descendance participeront à détruire les terroristes qui nous gouvernent, et s’il reste de l’argent, nous combattrons aussi les méchants islamistes de Turquie. Nous appellerons ce dernier combat, La Guerre des Turques.
 
-Pour toutes questions, [référez-vous à la FAQ](jdl2017_sw_faq.md).
+Pour toutes questions [référez-vous à la FAQ](jdl2017_sw_faq.md).
 
 Au plaisir de vous voir et **VIVA ANARCHE GUEVARA**!
 
