@@ -193,7 +193,7 @@ La consommation d’alcool est à la baisse dans nos partys depuis quelque temps
 - Segment spécial enfant : En route vers mon premier cadre de porte parce que j’ai viré trop vite!
 
 *Votre contribution* :
-- On va chiller jusqu’à temps qu’on soit tanné.
+- On va chiller jusqu’à tant qu’on soit tanné.
 - Apportez-vous une couple de bières/drinks quand même.
 - Soyez sages pour brasser en ti-pépère le 31!
 
@@ -288,3 +288,4 @@ Pour vous récompenser de votre contribution, nous ferons un petit quiz avec tou
 Je vous laisse jusqu’au 8 décembre et ensuite j’envoie le quiz à tous les participants!
 
 Mes hommages!
+
