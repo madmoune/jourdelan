@@ -125,6 +125,7 @@ Pour un match épique de crutchball, c'est par ici:
 - Comme vous pouvez le constater ci-haut, cette année-là, le défi de s'asseoir nu-cul sur le *p'tit banc* fut lancé!
 - Ce fut l'année ou la bolle fut splashée.
 - C'est cette année-là que Maxime Dupont vécut une grande déception: aucun fromage sur sa poutine de chez *Roy et Diane*.
+- Deux mots: sushis, pogos.
 
 #### Site internet
 - [La Civilisation Mayo](jdl2013_civilisationmayo.md)
@@ -172,7 +173,6 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 - Cette année-là, Moune acheta le célèbre toutou de bacon qui disait "I'm Bacon". 20$ de shipping et 15$ de douanes plus tard, Seb le gagna et le crissa sans cérémonie dans son garde-robe, là où il ne vit plus jamais le jour.
 - La légende dit qu'une bouteille d'eau très forte circula en 2012.
 - Le mythique emballage femmes toutes nues fut à l'honneur. Pour commencer sur un cadeau, et ensuite dans un cadre à photo.
-- Deux mots: Sushis-pogos.
 
 ---
 ### Lecture #1: 1er Novembre 2019 / Jour de l'An 2011 (1ere édition)
