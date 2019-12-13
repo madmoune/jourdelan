@@ -12,7 +12,7 @@ En résumé!
 
 Voici un exemple de dessin:
 
-#[images/jdl2017_img_faq.jpg](images/jdl2017_img_faq.jpg)
+[images/jdl2017_img_faq.jpg](images/jdl2017_img_faq.jpg)
 
 ### Ce que vous devez amener
 
@@ -35,6 +35,6 @@ Si vous avez des questions, laissez un commentaire en bas, où écrivez-moi!
 
 ## Autres pages:
 - [Accueil](jdl2017_sw_accueil.md)
-- [Portes ouvertes](jdl2017_sw_po.md])
-- [Films pour enfants](jdl2017_sw_films.md])
-- [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
+- [Portes ouvertes](jdl2017_sw_po.md)
+- [Films pour enfants](jdl2017_sw_films.md)
+- [Dessins du Grand Moumou](jdl2017_quiz.md)
