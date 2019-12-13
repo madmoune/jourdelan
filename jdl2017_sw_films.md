@@ -23,6 +23,6 @@
 
 ## Autres pages:
 - [Accueil](jdl2017_sw_accueil.md)
-- [Portes ouvertes](jdl2017_sw_po.md])
-- [FAQ](jdl2017_sw_faq.md])
-- [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
+- [Portes ouvertes](jdl2017_sw_po.md)
+- [FAQ](jdl2017_sw_faq.md)
+- [Dessins du Grand Moumou](jdl2017_quiz.md)
