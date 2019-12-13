@@ -34,13 +34,13 @@ Devant la quantité d'enfants qui prolifèrent sous nos yeux, il allait de soit 
 
 ![images/jdl2017_img_pepi.png](images/jdl2017_img_pepi.png)
 
-Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du quiz nous perturbent encore à ce jour](jdl2017_sw_moumou.md])), cette édition présenta un site web beaucoup trop intense:
+Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du quiz nous perturbent encore à ce jour](jdl2017_quiz.md)), cette édition présenta un site web beaucoup trop intense:
 
 - [Accueil](jdl2017_sw_accueil.md)
-- [Portes ouvertes](jdl2017_sw_po.md])
-- [FAQ](jdl2017_sw_faq.md])
-- [Films pour enfants](jdl2017_sw_films.md])
-- [Quiz](jdl2017_quiz.md])
+- [Portes ouvertes](jdl2017_sw_po.md)
+- [FAQ](jdl2017_sw_faq.md)
+- [Films pour enfants](jdl2017_sw_films.md)
+- [Quiz](jdl2017_quiz.md)
 
 #### Fun Facts
 - Le Tournoi Vincent Damphourche vous invitait à lancer des balles dans la fourche d'une des 5 personnes suivantes
