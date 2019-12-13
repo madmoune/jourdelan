@@ -28,7 +28,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2017.](jdl2017_invitation.md)
 
-***Quiz***: [Le Quiz du Grand Moumou](jdl2017_sw_moumou.md)
+***Quiz***: [Le Quiz du Grand Moumou](jdl2017_quiz.md)
 
 Devant la quantité d'enfants qui prolifèrent sous nos yeux, il allait de soit qu'une thématique *garderie* voit le jour! Mais pas n'importe quelle garderie, non! Celle de l'enfant de plusieurs d'entre-nous, avec une *twist* de théorie du complot. Rien de mieux!
 
@@ -40,7 +40,7 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
 - [Portes ouvertes](jdl2017_sw_po.md])
 - [FAQ](jdl2017_sw_faq.md])
 - [Films pour enfants](jdl2017_sw_films.md])
-- [Quiz](jdl2017_sw_moumou.md])
+- [Quiz](jdl2017_quiz.md])
 
 #### Fun Facts
 - Le Tournoi Vincent Damphourche vous invitait à lancer des balles dans la fourche d'une des 5 personnes suivantes
