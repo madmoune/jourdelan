@@ -84,6 +84,6 @@ T
 
 ## Autres pages:
 - [Accueil](jdl2017_sw_accueil.md)
-- [Portes ouvertes](jdl2017_sw_po.md])
-- [FAQ](jdl2017_sw_faq.md])
-- [Films pour enfants](jdl2017_sw_films.md])
+- [Portes ouvertes](jdl2017_sw_po.md)
+- [FAQ](jdl2017_sw_faq.md)
+- [Films pour enfants](jdl2017_sw_films.md)
