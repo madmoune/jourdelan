@@ -12,7 +12,7 @@ En résumé!
 
 Voici un exemple de dessin:
 
-[images/jdl2017_img_faq.jpg](images/jdl2017_img_faq.jpg)
+[images/jdl2017_img_faq.jpg](images/Moumou.png)
 
 ### Ce que vous devez amener
 
