@@ -51,6 +51,7 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
     - Dolores Umbridge
 - 2017 fut la première édition du JDL à St-Étienne-Des-Grès!
 - Ce fut également l'année où la glissade fut ajoutée aux activités du 30 décembre!
+- La Garderie Pepipandor offrait de [magnifiques films pour les enfants!](jdl2017_sw_films.md)
 
 ---
 
