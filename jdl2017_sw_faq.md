@@ -10,10 +10,6 @@ En résumé!
 - M’envoyer un dessin de votre vision du Grand Moumou!
   - Ensuite nous aurons un quiz pour deviner à qui appartient le dessin!
 
-Voici un exemple de dessin:
-
-[images/jdl2017_img_faq.jpg](images/Moumou.png)
-
 ### Ce que vous devez amener
 
 - 15$ + 5$ si vous faites la dégustation d’alcool.
