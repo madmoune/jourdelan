@@ -34,7 +34,7 @@ Mais ne décidez pas sans connaître les **VRAIS FAITS**! On nous cache trop sou
 
 ## Site internet:
 - [Accueil](jdl2017_sw_accueil.md)
-- [Portes ouvertes](jdl2017_sw_po.md])
-- [FAQ](jdl2017_sw_faq.md])
-- [Films pour enfants](jdl2017_sw_films.md])
-- [Dessins du Grand Moumou](jdl2017_sw_moumou.md])
+- [Portes ouvertes](jdl2017_sw_po.md)
+- [FAQ](jdl2017_sw_faq.md)
+- [Films pour enfants](jdl2017_sw_films.md)
+- [Dessins du Grand Moumou](jdl2017_quiz.md)
