@@ -231,10 +231,11 @@ Le JDL2011 fut la première édition de l'événement. Présentée à St-Célest
 - Le déjeuner aux pains dorés préparé par Maxime
 - Bohemian Rhapsody
 
-#### Faits
+#### Fun Facts
 
 On se souviendra de 2011 comme étant l'année où:
 - Frank a rendu hommage à la chanson *Chop Suey* de *System of a Down*
 - Moune a passé la soirée du 30 à l'urgence et le 31 sur les antibiotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldats en plastique que Michel s'est mérité. C'était le début des cadeaux de marde au JDL.
+- 2011 fut également le moment où Moune pensait que son plancher de rez-de-chaussée allait défoncer quand Etienne, Ray et St-Onge dansait en même temps. Gros merci aux poutres et à leur flexibilité.
