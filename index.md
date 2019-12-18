@@ -1,6 +1,6 @@
 ## Histoire du Jour de l'An 101
 
-Cette page rassemble les éléments nécéssaire à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site sont sujettes à examen.
+Cette page rassemble les éléments nécessaires à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site sont sujettes à examen.
 
 Le but de ce cours est d'expérimenter et de comprendre l'ensemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'An**.
 
@@ -20,7 +20,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
-### Lecture #7: 13 Décembre 2019 / Jour de l'an 2017 (7ième édition)
+### Lecture #7: 13 Décembre 2019 / Jour de l'an 2017 (7e édition)
 
 ***Nom***: La Garderie Pepipandor
 
@@ -28,7 +28,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ***Quiz***: [Le Quiz du Grand Moumou](jdl2017_quiz.md)
 
-Devant la quantité d'enfants qui prolifèrent sous nos yeux, il allait de soit qu'une thématique *garderie* voit le jour! Mais pas n'importe quelle garderie, non! Celle de l'enfant de plusieurs d'entre-nous, avec une *twist* de théorie du complot. Rien de mieux!
+Devant la quantité d'enfants qui prolifèrent sous nos yeux, il allait de soi qu'une thématique *garderie* voit le jour! Mais pas n'importe quelle garderie, non! Celle de l'enfant de plusieurs d'entre nous, avec une *twist* de théorie du complot. Rien de mieux!
 
 ![images/jdl2017_img_pepi.png](images/jdl2017_img_pepi.png)
 
@@ -53,7 +53,7 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
 
 ---
 
-### Lecture #6: 6 Décembre 2019 / Jour de l'an 2016 (6ième édition)
+### Lecture #6: 6 Décembre 2019 / Jour de l'an 2016 (6e édition)
 
 ***Nom***: Le Mariage de Yolande et Roger
 
@@ -61,22 +61,22 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
 
 ***Quiz***: [Le Quiz Réseau-Contact](jdl2016_quiz.md)
 
-Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soit qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, parce que c'est drôle de dépenser de l'argent sur des timbres juste pour une blague. Voici le faire part que les invités ont reçu.
+Comme 2015 avait été le théâtre de deux mariages dans la gang, il allait de soi qu'on devait respecter le proverbe "Jamais deux sans trois". C'est donc pour cette raison que fut préparé le *Mariage de Yolande et Roger*. Pour la seule fois de l'histoire, aucun courriel ne fut envoyé le 1 novembre. L'invitation se fit plutôt par courrier, comme les vrais mariages le font, parce que c'est drôle de dépenser de l'argent sur des timbres juste pour une blague. Voici le faire part que les invités ont reçu.
 
 ![images/jdl2016_img_fairepart.PNG](images/jdl2016_img_fairepart.PNG)
 
-Rendu à la 6ième édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
+Rendu à la 6e édition, les bases étaient pas mal jetées et rien de bien nouveau ne fit son apparition. L'invitation officielle était donc toujours sur un site internet, tout comme le pré-quiz.
 
-Avec un thème rendant hommage à l'amour, il allait de soit que ça prenait un un site de rencontre! Ce fut donc le thème du préquiz, [disponible ici](jdl2016_quiz.md).
+Avec un thème rendant hommage à l'amour, il allait de soi que ça prenait un site de rencontre! Ce fut donc le thème du préquiz, [disponible ici](jdl2016_quiz.md).
 
 #### Fun Facts
 - Le tapis rouge d'OD a fait une apparition lors de la sélection des équipes pour le tournoi Oréo & Joliette. Il est ensuite retourné dans la salle de bain du sous-sol.
-- Un *shitload* de bagues étaient disponbiles afin de demander la main de nos ami(e)s, dans la plus grande tradition de la Polygamoune.
-- Cette année-là, un concours de photo du photobooth fut organisé. Le gagnants furent Vincent et Maxime qui reçurent une voiture (miniature)!
+- Un *shitload* de bagues était disponible afin de demander la main de nos ami(e)s, dans la plus grande tradition de la Polygamoune.
+- Cette année-là, un concours de photo du photobooth fut organisé. Les gagnants furent Vincent et Maxime qui reçurent une voiture (miniature)!
 
 ---
 
-### Lecture #5: 29 Novembre 2019 / Jour de l'an 2015 (5ième édition)
+### Lecture #5: 29 Novembre 2019 / Jour de l'an 2015 (5e édition)
 
 ***Nom***: Le Jour de l'HEEENNN?
 
@@ -96,7 +96,7 @@ Le *Tournoi Coeur d'Enfant* est la compétition officielle de ce JDL. Un des tou
 - C'est la *Résidence P'tit Bum* qui nous accueillait lors de cette édition!
 ---
 
-### Lecture #4: 24 Novembre 2019 / Jour de l'an 2014 (4ième édition)
+### Lecture #4: 24 Novembre 2019 / Jour de l'an 2014 (4e édition)
 
 ***Nom***: Les Jours Delanpiques
 
@@ -112,7 +112,7 @@ Le photobooth fait aussi son apparition au JDL2014, avec ceux qui deviendront se
 
 [Voyez ici les gilets officiels du JDL2014](jdl2014_gilet.md)
 
-Cette année-là, fut brassée quelques bonnes bières de Coubertin!
+Cette année-là, furent brassées quelques bonnes bières de Coubertin!
 ![images/jdl2014_img_biere.jpg](images/jdl2014_img_biere.jpg)
 
 #### Fun Facts
@@ -128,7 +128,7 @@ Cette année-là, fut brassée quelques bonnes bières de Coubertin!
 
 ***Quiz***: Aucun
 
-On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré ce qu'en disaient les Mayas. Cette grande chance fut l'inspiration du tout premier thème officiel: Les Mayos! Pour l'occasion un courriel d'invitation fut envoyé et ce fut également le début des sites internets créés pour le jour de l'an. Bien que les sites n'existent plus, vous en trouverez le contenu en ces pages.
+On se souvient tous de 2012 comme étant l'année où on est pas mort, malgré ce qu'en disaient les Mayas. Cette grande chance fut l'inspiration du tout premier thème officiel: Les Mayos! Pour l'occasion un courriel d'invitation fut envoyé et ce fut également le début des sites internet créés pour le jour de l'an. Bien que les sites n'existent plus, vous en trouverez le contenu en ces pages.
 
 Quelques ajustements qui furent apportés pour 2013 figurent encore dans les Jours de l'An d'aujourd'hui. Entre autres, c'est cette année-là que le premier tournoi du Jour de l'An eut lieu. On parle ici du tournoi de Crutchball, qui fut remporté par Etienne, et non Jérémie. Il va de soi que c'est en 2013 que le trophée du Jour de l'An fut inauguré!
 
@@ -223,5 +223,6 @@ On se souviendra de 2011 comme étant l'année où:
 - Frank a rendu hommage à la chanson *Chop Suey* de *System of a Down*
 - Moune a passé la soirée du 30 à l'urgence et le 31 sur les antibiotiques. La légende dit que Frank a compensé le manque à boire de Moune, ce qui a causé sa perte.
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
-- Gaby a acheté une chaudière de soldats en plastique que Michel s'est mérité. C'était le début des cadeaux de marde au JDL.
-- 2011 fut également le moment où Moune pensait que son plancher de rez-de-chaussée allait défoncer quand Etienne, Ray et St-Onge dansait en même temps. Gros merci aux poutres et à leur flexibilité.
+- Gaby a acheté une chaudière de soldats en plastique que Michel s'est méritée. C'était le début des cadeaux de marde au JDL.
+- 2011 fut également le moment où Moune pensait que son plancher de rez-de-chaussée allait défoncer quand Etienne, Ray et St-Onge dansaient en même temps. Gros merci aux poutres et à leur flexibilité.
+
