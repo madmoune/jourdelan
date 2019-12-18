@@ -34,7 +34,7 @@ L'endroit des festivités ne varie jamais. Il se déroule toujours dans la maiso
 
 Le *quiz pré-jdl* est un concours à caractère humoristique permettant d'entretenir l'engouement du **Jour de l'An**. Celui-ci se présente généralement comme un test d'association où l'on doit trouver à quel participant appartient une réponse. Suivant toujours le thème, on demande tout d'abord aux joueurs de créer un texte, une image, etc. Par la suite, le test d'association est envoyé et les résultats compilés. Le gagnant se mérite un point boni à la dégustation de vin.
 
-Mention honorable à tous ces gens qui années après années nous envoient des réponses des plus perturbantes.
+Mention honorable à tous ces gens qui année après année nous envoient des réponses des plus perturbantes.
 
 #### Site internet
 
@@ -46,7 +46,7 @@ Afin de mieux gérer les présences et la distribution d'information, des groupe
 
 #### Activités
 
-Le **Jour de l'An** contient son lot d'activité une fois l'événement venu. L'horaire est très chargé si on participe à tout, mais ça n'effrait pas les vrais de vrais!
+Le **Jour de l'An** contient son lot d'activité une fois l'événement venu. L'horaire est très chargé si on participe à tout, mais ça n'effraie pas les vrais de vrais!
 
 ##### 30 décembre
 
@@ -72,13 +72,13 @@ Les deux dernières éditions ont eu un jeu d'évasion comme tournoi, ce qui a p
 
 Le trophée du **Jour de l'An** est remis chaque année aux vainqueurs du tournoi. Ceux-ci se méritent de garder ledit trophée en leur possession toute l'année et de *bragger non-stop* pendant douze mois. 
 
-On grave évidemment le nom des gagnants sur le trophée à chaque année pour la postérité et pour rendre le graveur mal à l'aise.
+On grave évidemment le nom des gagnants sur le trophée chaque année pour la postérité et pour rendre le graveur mal à l'aise.
 
 ##### 31 décembre
 
 ###### Déjeuner
 
-Le déjeuner du 31 décembre est synonyme de pains dorés à l'orange, de sirop d'érable et de café baileys. Il est préparé et servi par Maxime et Vincent depuis des temps immémoriaux. Mains gommantes et surdoses de sucre, voilà une bon moyen de démarrer une journée!
+Le déjeuner du 31 décembre est synonyme de pains dorés à l'orange, de sirop d'érable et de café baileys. Il est préparé et servi par Maxime et Vincent depuis des temps immémoriaux. Mains gommantes et surdoses de sucre, voilà un bon moyen de démarrer une journée!
 
 ###### Divertissement
 
