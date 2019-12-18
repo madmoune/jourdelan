@@ -22,8 +22,6 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 
 ### Lecture #7: 13 Décembre 2019 / Jour de l'an 2017 (7ième édition)
 
-***Thème***: La Théorie du Complot
-
 ***Nom***: La Garderie Pepipandor
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2017.](jdl2017_invitation.md)
@@ -57,8 +55,6 @@ Sous l'oeil averti du Grand Moumou ([dont les représentations graphiques du qui
 
 ### Lecture #6: 6 Décembre 2019 / Jour de l'an 2016 (6ième édition)
 
-***Thème***: Le Mariage
-
 ***Nom***: Le Mariage de Yolande et Roger
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2016.](jdl2016_invitation.md)
@@ -82,8 +78,6 @@ Avec un thème rendant hommage à l'amour, il allait de soit que ça prenait un 
 
 ### Lecture #5: 29 Novembre 2019 / Jour de l'an 2015 (5ième édition)
 
-***Thème***: La résidence P'tit Bum
-
 ***Nom***: Le Jour de l'HEEENNN?
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2015.](jdl2015_invitation.md)
@@ -99,12 +93,10 @@ Le *Tournoi Coeur d'Enfant* est la compétition officielle de ce JDL. Un des tou
 - Incursion dans le futur: le mur des résidents présenta une photo de ce qu'aurait l'air tous les participants quand ils seraient plus vieux. On regarde aujourd'hui et ça s'en rapproche dangereusement!
 - Des médicaments douteux étaient disponibles à la résidence, c'est-à-dire, des jelly beans aux saveurs extrêmement variées! Un bon truc pour être certain de pas gouter à celui au vomi? L'avaler comme une pilule, sans croquer!
 - On vous invite à vérifier si [ces points soulevés il y a 5 ans](jdl2015_sw_epm.md) vous rejoigne encore plus qu'à l'époque!
-
+- C'est la *Résidence P'tit Bum* qui nous accueillait lors de cette édition!
 ---
 
 ### Lecture #4: 24 Novembre 2019 / Jour de l'an 2014 (4ième édition)
-
-***Thème***: Les Jeux Olympiques
 
 ***Nom***: Les Jours Delanpiques
 
@@ -130,9 +122,7 @@ Cette année-là, fut brassée quelques bonnes bières de Coubertin!
 
 ### Lecture #3: 15 Novembre 2019 / Jour de l'an 2013 (3e édition)
 
-***Thème***: Les Mayos
-
-***Nom***: Le Jour de l'an Plaisant
+***Nom***: Le Jour de l'an Plaisant / Les Mayos
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2013.](jdl2013_invitation.md)
 
@@ -189,8 +179,6 @@ Les participants furent invités à faire leurs propres prédictions. Voici les 
 
 ### Lecture #2: 8 Novembre 2019 / Jour de l'an 2012 (2e édition)
 
-***Thème***: Aucun
-
 ***Nom***: Aucun
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2012.](jdl2012_invitation.md)
@@ -211,8 +199,6 @@ Pour la deuxième édition, la piste de danse fut installée au sous-sol. Ce fut
 
 ---
 ### Lecture #1: 1er Novembre 2019 / Jour de l'An 2011 (1ere édition)
-
-***Thème***: Aucun
 
 ***Nom***: Aucun
 
