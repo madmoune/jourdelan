@@ -60,7 +60,7 @@ La doctorante SAQarol Dupont, suprémaciste blanche des vins, vous donnera une c
 
 Afin de célébrer comme il se doit la 10e édition du **Jour de l'An**, nous nominerons et voterons pour élire des gagnants dans plusieurs catégories marquantes. Soyez présents, ça va comme être choisir un roi et une reine du bal, mais pas vraiment.
 
-Professeur DGE s'assurera d'avoir un bon taux de participation et qu'aucune faudre ne soit commise!
+Professeur DGE s'assurera d'avoir un bon taux de participation et qu'aucune fraude ne soit commise!
 
 #### Travail Pratique #2: Déjeuner Mythique
 
