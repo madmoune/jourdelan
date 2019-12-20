@@ -45,6 +45,7 @@ L'invitation 2018 était d'ailleurs une des plus intéressantes à écrire, perm
 - Une mise à jour du poème "Soir d'Hiver" d'Émile Nelligan avait été remis [au goût du jour](jdl2017_poeme.md).
 - Un [livre pour enfant avait également vu le jour lors de cette édition](jdl2018_livreenfant.md).
 - Lors du tournoi "La Caverne de Pluton", [Où Est Charlie et son acolyte scaphandrier furent à l'honneur.](jdl2018_charlie.md)
+- Premier jeu d'évasion dans un tournoi du ***Jour de l'An***!
 
 ---
 
