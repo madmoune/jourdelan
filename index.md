@@ -20,6 +20,34 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
+### Lecture #8: 20 Décembre 2019 / Jour de l'an 2018 (8ième édition)
+
+***Nom***: Le Salon du Livre Alternatif
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2018.](jdl2018_invitation.md)
+
+***Quiz***: [Le Quiz des Livres](jdl2018_quiz.md)
+
+Après plusieurs années à présenter le thème par un site internet, changement de direction en 2017. Une page facebook est créée afin de faciliter les communications. Le courriel d'invitation du 1 novembre se lit d'ailleurs comme suit:
+
+    C'T'ANNÉE ON L'FAIT SU FACEBOOK! YESSERS!
+    
+De la poésie.
+
+Un thème *Salon du Livre Alternatif* est de mise en 2018, permettant de remettre à leur place les intellectuels, les universitaires, les estis de gauchistes et même les estis de gauchers!
+
+L'invitation 2018 était d'ailleurs une des plus intéressantes à écrire, permettant de marier culture littéraire et gros *douche* attardé! 
+
+#### Fun Facts
+- Une quantité limitée de personnes ont compris qu'ils fallaient offrir un livre pendant le cadeau d'échange.
+- Invité vedette: Danné Vot'péter
+![images/jdl2018_img_dan.PNG](images/jdl2018_img_dan.PNG)
+- Une mise à jour du poème "Soir d'Hiver" d'Émile Nelligan avait été remis [au goût du jour](jdl2017_poeme.md).
+- Un [livre pour enfant avait également vu le jour lors de cette édition](jdl2018_livreenfant.md).
+- Lors du tournoi "La Caverne de Pluton", [Où Est Charlie et son acolyte scaphandrier furent à l'honnreur.](jdl2018_charlie.md)
+
+---
+
 ### Lecture #7: 13 Décembre 2019 / Jour de l'an 2017 (7e édition)
 
 ***Nom***: La Garderie Pepipandor
