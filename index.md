@@ -10,7 +10,7 @@ Attention! Attention!
 
 L'examen final est maintenant disponible! Vous pouvez le télécharger ici: [Examen Final](Examen Final.pdf)
 
-Vous pouvez le commencer dès maintenant, en équipe ou seul! Certaines réponses sont déjà disponibles, d'autres le seront lors de votre séjour du 30/31/1er parmi nous!
+Vous pouvez le commencer dès maintenant! Vous pouvez le faire seul, ou avec votre partenaire de vie. Je ne surveillerai cependant pas les échanges d'information. Certaines réponses sont déjà disponibles, d'autres le seront lors de votre séjour du 30/31/1er parmi nous!
 
 La plus haute note se méritera un trophée digne de ce nom!
 
