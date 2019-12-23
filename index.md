@@ -4,6 +4,16 @@ Cette page rassemble les éléments nécessaires à votre apprentissage du **Jou
 
 Le but de ce cours est d'expérimenter et de comprendre l'ensemble des tenants et aboutissants de cette célébration. Pendant 3 jours, nous revivrons ensemble la totalité de l'histoire des **Jour de l'An**.
 
+## Examen Final
+
+Attention! Attention!
+
+L'examen final est maintenant disponible! Vous pouvez le télécharger ici: []()
+
+Vous pouvez le commencer dès maintenant, en équipe ou seul! Certaines réponses sont déjà disponibles, d'autres le seront lors de votre séjour du 30/31/1er parmi nous!
+
+La plus haute note se méritera un trophée digne de ce nom!
+
 ## Théorie du Jour de l'An
 
 Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous familiariser avec les éléments de bases avant de poursuivre avec les lectures obligatoires.
