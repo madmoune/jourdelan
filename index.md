@@ -14,7 +14,7 @@ Vous pouvez le commencer dès maintenant! Vous pouvez le faire seul, ou avec vot
 
 La plus haute note se méritera un trophée digne de ce nom!
 
-# Jeu du Jour de l'An!
+## Jeu de l'An!
 
 Pour vous récompenser d'avoir bien étudié pour votre examen, voici un petit jeu pour vous relaxer. Si ce n'est pas le meilleur jeu auquel vous avez joué cette année, c'est normal!
 
