@@ -20,6 +20,24 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ## Lectures Obligatoires
 
+---
+### Lecture #9: 27 Décembre 2019 / Jour de l'an 2019 (9ième édition)
+
+***Nom***: Le Jour de l'Anregistrement
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2019.](jdl2019_invitation.md)
+
+***Quiz***: [Le Quiz des Émissions](jdl2019_quiz.md)
+
+Après une année sous le signe de la culture littéraire, 2019 alla vers un penchant plus télévisuel! Une source infinie d'inspiration tant le contenu de la télé de l'époque était absurde!
+
+À voir les entrées dans le quiz, il est difficile de voir que 9 ans ont passé depuis la première édition. Avec autant de références sexuelles puériles, difficile de penser que les participants ont souvent des enfants à la maison dont ils doivent s'occuper!
+
+#### Fun Facts
+- Le vainqueur de la dégustation de Vin Diesel se vit remettre [le prix suivant.](jdl2019_vin.md)
+- Même après 9 ans, on a été surpris de voir arriver Renaud le 31 au soir.
+- Gaby était absent, mais la technologie accessible de nos jours, on a pu s'envoyer des souhaits de bonnes années quand même! 
+
 ### Lecture #8: 20 Décembre 2019 / Jour de l'an 2018 (8ième édition)
 
 ***Nom***: Le Salon du Livre Alternatif
@@ -254,4 +272,3 @@ On se souviendra de 2011 comme étant l'année où:
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldats en plastique que Michel s'est méritée. C'était le début des cadeaux de marde au JDL.
 - 2011 fut également le moment où Moune pensait que son plancher de rez-de-chaussée allait défoncer quand Etienne, Ray et St-Onge dansaient en même temps. Gros merci aux poutres et à leur flexibilité.
-
