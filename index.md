@@ -14,6 +14,12 @@ Vous pouvez le commencer dès maintenant, en équipe ou seul! Certaines réponse
 
 La plus haute note se méritera un trophée digne de ce nom!
 
+# Jeu du Jour de l'An!
+
+Pour vous récompenser d'avoir bien étudié pour votre examen, voici un petit jeu pour vous relaxer. Si ce n'est pas le meilleur jeu auquel vous avez joué cette année, c'est normal!
+
+[C'est ici!](JeuDL.html)
+
 ## Théorie du Jour de l'An
 
 Veuillez consulter la page [Théorie du Jour de l'An](theorie.md) afin de vous familiariser avec les éléments de bases avant de poursuivre avec les lectures obligatoires.
@@ -282,3 +288,4 @@ On se souviendra de 2011 comme étant l'année où:
 - Moune a été grandement affecté par Geneviève qui danse trop proche et trop intense pour lui.
 - Gaby a acheté une chaudière de soldats en plastique que Michel s'est méritée. C'était le début des cadeaux de marde au JDL.
 - 2011 fut également le moment où Moune pensait que son plancher de rez-de-chaussée allait défoncer quand Etienne, Ray et St-Onge dansaient en même temps. Gros merci aux poutres et à leur flexibilité.
+
