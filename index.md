@@ -37,6 +37,27 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ## Lectures Obligatoires
 
 ---
+### Lecture #10: 1er Janvier 2020 / Jour de l'an 2020 (10ième édition)
+
+***Nom***: Le Jour de l'Anregistrement
+
+***Invitation***: [Vous retrouverez ici l'invitation de 2020.](index.md)
+
+***Quiz***: [Le Quiz des Jour de l'An](quiz.md)
+
+Pour la dixième année, la nostalgie fut à l'honneur avec une thématique récapitulative de toutes les autres éditions. Un site web fut créé afin de présenter chacune des invitations, des quiz et des différents éléments ayant aidés à promouvoir toutes ces éditions.
+
+Afin de ramener un esprit plus festif, le déploiement du photobooth et du bar furent améliorés par rapport aux années précédentes présentées à St-Étienne. Le résultat fut une meilleure quantité d'alcool ingurgitée, de meilleures photos et une quantité de plaisir significative.
+
+Mention d'honneur à Maxime, Rémi et la très célèbre Steph pour leur contemplation du lever du soleil, un exploit de plus en plus rare qui mérite la reconnaissance et le respect éternel!
+
+#### Fun Facts
+- En guise de décoration, 400 photos furent imprimées et disposées sur les murs de la maison. Elles permettaient également de répondre à plusieurs question de l'examen final, le tournoi de 2020.
+- D'ailleurs, cet examen proposait 100 questions, dont les réponses étaient majoritairement disponibles soient sur les photos, soit sur le site internet. Au moment d'écrire ces lignes, l'équipe gagnante est toujours à déterminer.
+- Des verres personnalisés furent offerts aux invités pour le traditionnel mousseux  du Nouvel An. N'oubliez pas de le laver à l'eau froide.
+- Quelques plaintes furent déposées concernant le divan du salon, qui selon quelques intoxiqués
+
+---
 ### Lecture #9: 27 Décembre 2019 / Jour de l'an 2019 (9ième édition)
 
 ***Nom***: Le Jour de l'Anregistrement
