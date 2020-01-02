@@ -55,7 +55,24 @@ Mention d'honneur à Maxime, Rémi et la très célèbre Steph pour leur contemp
 - En guise de décoration, 400 photos furent imprimées et disposées sur les murs de la maison. Elles permettaient également de répondre à plusieurs question de l'examen final, le tournoi de 2020.
 - D'ailleurs, cet examen proposait 100 questions, dont les réponses étaient majoritairement disponibles soient sur les photos, soit sur le site internet. Au moment d'écrire ces lignes, l'équipe gagnante est toujours à déterminer.
 - Des verres personnalisés furent offerts aux invités pour le traditionnel mousseux  du Nouvel An. N'oubliez pas de le laver à l'eau froide.
-- Quelques plaintes furent déposées concernant le divan du salon, qui selon quelques intoxiqués
+- Quelques plaintes furent déposées concernant le divan du salon, qui selon quelques intoxiqués, serait un divan tournant.
+- D'ailleurs, plusieurs siestes furent prisent lors de la soirée du 31, menant souvant à quelques clichés amusants.
+
+#### Résultat du vote populaire
+
+Plusieurs éléments/personnes furent couronnés pour leur performances lors des 10 premières éditions du JDL:
+
+- Meilleure chanson du JDL: La Tribu de Dana
+- Meilleur buveur du JDL: Frank
+- Meilleur joueur de Beerpong: Moune
+- Meilleur danseur: Geneviève L
+- Meilleur gars pas là: Michel
+- Meilleur Tournoi du JDL: Crutchball et Coeur d'enfant à égalité
+- Meilleure barmaid: Steph
+- Meilleure émotion: Moune
+- Meilleur sushi-pogos: Autre
+- Meilleur vin du JDL: Pas le LC Wine
+- Meilleur Thème du JDL: Histoire du Jour de l'An 101
 
 ---
 ### Lecture #9: 27 Décembre 2019 / Jour de l'an 2019 (9ième édition)
