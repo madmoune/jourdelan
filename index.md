@@ -39,7 +39,7 @@ Veuillez compléter le [premier devoir du cours](quiz.md) portant sur l'histoire
 ---
 ### Lecture #10: 1er Janvier 2020 / Jour de l'an 2020 (10ième édition)
 
-***Nom***: Le Jour de l'Anregistrement
+***Nom***: Histoire du Jour de l’An 101
 
 ***Invitation***: [Vous retrouverez ici l'invitation de 2020.](index.md)
 
