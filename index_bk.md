@@ -1,4 +1,3 @@
-[2023](jdl2023_invitation.md)
 ## Histoire du Jour de l'An 101
 
 Cette page rassemble les éléments nécessaires à votre apprentissage du **Jour de l'An**. Toutes informations spécifiées sur ce site sont sujettes à examen.
