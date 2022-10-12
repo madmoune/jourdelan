@@ -1,3 +1,5 @@
+### Bonne nouvelle! ###
+
 Bonjour à tous!
 
 Comme le dit le titre, Karo et moi avons une bonne nouvelle à vous annoncer! Voilà, après maintes années à en parler, c'est maintenant le moment pour nous d’entreprendre une nouvelle étape dans notre vie!
