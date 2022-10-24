@@ -49,3 +49,6 @@ Venez voir les meilleurs chiffres de 2022 sous forme de présentation rapide et 
 
 ### 1er janvier / L’aube d’un nouveau jour : Conférence sur les réalisations inachevées ###
 Demeurez avec nous pour découvrir pourquoi chaque année, tant de gens abandonnent non seulement leurs résolutions, mais également le défi de voir le lever du soleil. Une conférence qui viendra certainement vous chercher (dans votre lit si vous vous endormez trop tôt).
+
+## En attendant votre visite ##
+En attendant votre visite, consultez notre toute première exposition virtuelle nommée [Prohibition Artistique](jdl2022_exposition.md) et voyez de vos propres yeux notre [Top 5 des plus grands buveurs de l'histoire!](jdl2022_top5.md)
