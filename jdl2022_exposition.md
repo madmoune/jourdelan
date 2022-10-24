@@ -1,4 +1,4 @@
-# Exposition Virtuelle: Prohibition Artistique #
+<h1>Exposition Virtuelle: Prohibition Artistique</h1>
 Peu de gens savent que l’art a longtemps été censuré au niveau festif. C’est un fait bien caché, car plusieurs œuvres considérées comme parmi les plus grandioses de l’histoire sont en fait des versions censurées. Si cela se savait, la valeur de ces toiles tomberait à zéro.
 
 Mais comme nous sommes un musée à la recherche de vérité et de vin blanc, voici pour vous 5 toiles originales que vous trouverez assurément encore plus magnifiques que la version popularisée!
