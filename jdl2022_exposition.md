@@ -41,3 +41,5 @@ La naissance de Venus ne faisait pas vraiment de sens, alors qu'elle apparaît d
 ### The Bath of Venus de Saltro Limoncelli ###
 
 <img src="images/jdl2022_exp5-1.jpg" width="400"/> <img src="images/jdl2022_exp5-2.png" width="400"/>
+
+[Retour à la page d'acceuil](index.md)
