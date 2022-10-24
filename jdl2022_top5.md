@@ -1,4 +1,4 @@
-### Top 5 festif : Les plus grands buveurs de l’histoire ###
+<h1>Top 5 festif : Les plus grands buveurs de l’histoire</h1>
 
 Voici un portait des plus grands saoulons de l'histoire, un hommage bien senti (odeur de fond de tonne, évidemment) à nos héros, ceux qui nous inspirent (comme la carte) à repousser les limites nos foies et nos maux de tête.
 
