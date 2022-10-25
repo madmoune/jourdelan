@@ -28,7 +28,7 @@ Son regard et sourire énigmatiques ont toujours été un mystère pour tous, ma
 
 <!-- *********************************************************************************************************************** -->
 ## Persistance of Memory de Salvador Dali ##
-Coup de maître de Dali d'avoir réussi à garder presque complète sa toile face à censure. Par contre, enore aujourd'hui on se demande s'il s'agit d'une image sortie de son imagination, ou simplement un vision lors de ses soirées Horloges et Mescaline.
+Coup de maître de Dali d'avoir réussi à garder presque complète sa toile face à censure. Par contre, encore aujourd'hui on se demande s'il s'agit d'une image sortie de son imagination, ou simplement une vision lors de ses soirées Horloges et Mescaline.
 
 ### Persistance of Mescaline de Salviador Dali ###
 
