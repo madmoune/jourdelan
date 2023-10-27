@@ -5,6 +5,10 @@ body {
     width: 750px;
 }
 
+a:visited {
+  color: gray;
+}
+
 header {
     background-image: linear-gradient(red, yellow);
     padding: 10px;
