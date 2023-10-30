@@ -9,6 +9,10 @@ a:visited {
   color: gray;
 }
 
+.image2024 {
+    font-size: 12px;
+}
+
 header {
     background-image: linear-gradient(red, yellow);
     padding: 10px;
