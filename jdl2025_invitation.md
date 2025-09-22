@@ -41,8 +41,15 @@ Cette année
 - demander un numéro
 - Bouncer
 - se faire carter
-- Oublier son manteau au vestiaire
-- Musique Plus
+- Oublier son manteau au vestiaire / Aller veiller pas de manteau pentoute.
+- Musique Plus + napster limewire
+- Chauffeur désigné
+- Sortir plusieurs fois par semaine.
+- Taxi super cher ou chauffer chaud
+- Pregame avant le bar
+- La barmaid qui te cruise, mais pas vraiment
+- Foam party
+- stinger
 
 Meilleurs chansons:
 - 
