@@ -7,6 +7,29 @@
 - s'Assurer que tout le monde ait leur chanson
 - Setup pour switcher entre Karafun et Spotify
 
+Tel le criminel qui retourne sur la scène du crime, les 30, 31 décembre et 1er janvier, nous retournerons là où tout à commencé. Là où nos oreilles ont cru que la fin était proche. Là où la sambuca n'était pas synonyme de hauts le coeur, mais de doux fenouil sucré. Là où la tornade n'était pas qu'un cataclysme météorologique, mais aussi la promesse d'une soirée enivrante. 
+
+2025 prend le bar pendant qu'on fête au Big Broactus!
+
+Ce sera pareil comme la débauche d'un party étudiant, si la débauche était définie par se coucher passer 23h et les étudiants ont plus l'âge d'être professeur.
+
+Multiples activités au programme
+- 30 Décembre
+  - Pregamer à partir de 13h au café baileys
+  - Glissade si y'a d'la neige, moment parfait pour ne pas porter votre manteau pour sauver 2$ au vestiaire
+  - Souper du Stratos pour pas boire sur un estomac vide!
+- 31 Décembre
+  - Déjeuner pour Max, Jonathan, Karo et moi, crème glacée de 2022 incluse.
+  - Jeux de société toute la journée pour afuter l'esprit du chasseur le soir venu
+  - Buffet
+  - Échange de cadeau (Nourriture pour pas boire le ventre vide, qui risque de devenir)
+    - Le faire plus tard? Faire un tas qu'on pige random dedans dans la soirée?
+  - Tournoi, soirée Karaoke
+
+On a finit de se prendre pour New York?
+
+Big Broactus
+
 - Big Apple
 - Monkey
 - Cactus
@@ -14,7 +37,51 @@
 - Temple
 - Broadway
 
-Cette année
+-----------------------------------
+Arrivée + Glissade
+
+-----------------------------------
+Souper
+
+-----------------------------------
+Chiller
+
+-----------------------------------
+Nuit
+
+-----------------------------------
+Déjeuner
+
+-----------------------------------
+Jeux
+
+-----------------------------------
+Buffet
+
+-----------------------------------
+Échange
+
+-----------------------------------
+Party + Karaoke
+
+-----------------------------------
+Lever du soleil
+
+-----------------------------------
+
+À l'honneur, tous les classiques de l'époque où les bars se pensaient à New York! Boire du punch dans un galon de gaz! Concours de Wet T-Shirt avec une victoire assurée de Ray après 3 minutes de danse! 
+
+C'est quoi la différence entre le Big Apple en 2005 pis les mines du Chili en 2010? Y'en a pas, les deux étaient plein de mineurs!
+
+Apportez une chiée de sacoche, parce qu'on va danser autour pendant des heures!
+
+Invité spécial qui va venir lancer des bocks de bière du 2e étage pour augmenter votre stress et rendre le plancher aussi collant que dans vos meilleurs souvenirs
+
+Le dance floor, les filles sur les boxes, les gars qui regardent les filles sur les box, Karo qui menace des jeunes en leur aggripant le collet, tout est prévu pour une soirée des plus mémorables!
+
+Pour le plus grand réalisme possible, Votre Honneur, David et moi-même avons déjà commencé à fumer dans le salon tous les soirs pour que vous puissiez sentir la clope pendant 1 semaine après votre passage.
+
+Baby foot, pool, vidéo poker, 
 
 - Boire dans un galon de gaz (acheter neuf, mettre du punch dedans)
 - Wet T-Shirt (juste avoir un gilet mouillé ben normal dans mes mains)
