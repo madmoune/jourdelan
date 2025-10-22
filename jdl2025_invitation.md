@@ -1,5 +1,3 @@
-# Soirée Canadienne
-
 - Stage
 - Préparer le setup pour pas avoir de feedback
 - Faire faire le trophé
@@ -7,71 +5,45 @@
 - s'Assurer que tout le monde ait leur chanson
 - Setup pour switcher entre Karafun et Spotify
 
-Tel le criminel qui retourne sur la scène du crime, les 30, 31 décembre et 1er janvier, nous retournerons là où tout à commencé. Là où nos oreilles ont cru que la fin était proche. Là où la sambuca n'était pas synonyme de hauts le coeur, mais de doux fenouil sucré. Là où la tornade n'était pas qu'un cataclysme météorologique, mais aussi la promesse d'une soirée enivrante. 
+Yo les jeunes! 
 
-2025 prend le bar pendant qu'on fête au Big Broactus!
+Une autre Halloween de passée, moment familial joyeux et nostalgique qui rappelle nos soirée à quêter des 5¢ pour l'unicef alors qu'on se bourrait la face dans les klondikes. Il est beau de constater que cette fête reprend tout son sens 30 ans plus tard, que vous ayez des enfants ou non: sois vous passez un beau moment en famille, soit vous mangez des bonbons en rabais, tout le monde y gagne! 
 
-Ce sera pareil comme la débauche d'un party étudiant, si la débauche était définie par se coucher passer 23h et les étudiants ont plus l'âge d'être professeur.
+L'Halloween, ce n'est pas seulement de se costumer et de constater qu'il y a beaucoup de gens qui choisissent de risquer l'homicide involontaire avec leur véhicule plutôt que de marcher 1km. C'est aussi une excuse pour introduire le thème du Jour de l'An de cette année. Parce qu'en plein milieu de nos années à ramasser des bonbons que nos parents mangeaient dans notre dos et des années où on mange les bonbons de nos enfants dans leur dos, se situe une époque où seuls les bars de Shawi estimaient encore adéquat de comparer la ville à New York! C'est là que je vous emmène, les années du Big Apple et du Broadway, ère formatrice de la jeunesse d'hier et des désagréables d'aujourd'hui!
 
-Multiples activités au programme
-- 30 Décembre
-  - Pregamer à partir de 13h au café baileys
-  - Glissade si y'a d'la neige, moment parfait pour ne pas porter votre manteau pour sauver 2$ au vestiaire
-  - Souper du Stratos pour pas boire sur un estomac vide!
-- 31 Décembre
-  - Déjeuner pour Max, Jonathan, Karo et moi, crème glacée de 2022 incluse.
-  - Jeux de société toute la journée pour afuter l'esprit du chasseur le soir venu
-  - Buffet
-  - Échange de cadeau (Nourriture pour pas boire le ventre vide, qui risque de devenir)
-    - Le faire plus tard? Faire un tas qu'on pige random dedans dans la soirée?
+Tel le brigand qui retourne sur la scène du crime, les 30, 31 décembre et 1er janvier, nous retournerons là où tout* à commencé. Là où le seul mot sambuca n'était pas synonyme de malaises gastro-intestinaux. Là où la tornade n'était pas qu'un cataclysme météorologique, mais aussi la promesse d'une soirée enivrante. 
+
+* pas tout
+
+Alors que 2025 prend le bar, la débauche d'un party étudiant sera de la partie, si la débauche était définie par se coucher passer 23h et les étudiants ont plus l'âge d'être professeur.
+
+Le 31 au soir, c'est un rendez-vous au Big Broactus!
+
+Mais comme vous savez, sortir au bar, ce n'est pas simplement trouver du linge que ça nous dérange pas trop qu'il sente la clope à tout jamais. Ça demande une préparation méticuleuse pour maximiser le plaisir!
+
+Dans cet optique, voici l'horaire qui nous attend!
+
+##30 Décembre
+Première chose à considérer avant de virer un brosse de manière responsable: sauver de l'argent. Pour réduire les dépenses, la solution ultime c'est de pregamer! Donc à partir de 13h ce sera glissade (s'il y a de la neige) pour les enfants et réchauffement au café baileys pour les adultes! Rien ne dit plus `je veux en virer une tabarnak, mais aussi contribuer à mes REERs` que d'être chaudaille avant de partir!
+
+Ensuite, erreur de débutant à ne pas commettre: boire sur un estomac vide! C'est donc une grosse poutine du Stratos qui nous attend pour le souper, question que ça goûte bon si jamais ça a à ressortir!
+
+Les plus prévoyants d'entre-vous voudront probablement dormir avant de partir pour une soirée endiabliée, donc que ce soit chez nous ou chez vous, une petite sieste de 7-8h, c'est toujours d'addon!
+
+##31 Décembre
+Le 31 au matin, c'est là que la vraie soirée commence! Premièrement, ne pas boire sur un estomac vide. Donc carb load aux pains dorés oranges crème glacée de 2022 café baileys! Parce que c'est important d'être sur un high quand tu décides de pas porter ton manteau à -35 celcius pour sauver les 2$ du vestiaire.
+
+Ensuite, réchauffement des séducteurs. Séduire, c'est pas juste bouger ses hanches en faisant des 8, c'est aussi avoir l'esprit sharp pour savoir comment récupérer rapidement après avoir dit "travailles-tu dans les jeans parce que tu travailles dans les miennes" ou "veux-tu goûter à de quoi que ma mère à fait". Donc, jeux de sociétés, jeux d'habileté sur console et petite course à pied pour pas finir la soirée avec Tommy, l'oreiller de chasteté. SEDUCE!
+
+Une chose à ne pas oublier: ne JAMAIS boire sur un estomac vide. Donc potluck pour le souper, on va tellement manger qu'on aura pu de place pour boire!
+
+Une fois toutes les étapes de la préparation
+  
   - Tournoi, soirée Karaoke
-
-On a finit de se prendre pour New York?
-
-Big Broactus
-
-- Big Apple
-- Monkey
-- Cactus
-- Rocher
-- Temple
-- Broadway
-
------------------------------------
-Arrivée + Glissade
-
------------------------------------
-Souper
-
------------------------------------
-Chiller
-
------------------------------------
-Nuit
-
------------------------------------
-Déjeuner
-
------------------------------------
-Jeux
-
------------------------------------
-Buffet
-
------------------------------------
-Échange
-
------------------------------------
-Party + Karaoke
-
------------------------------------
-Lever du soleil
-
------------------------------------
 
 À l'honneur, tous les classiques de l'époque où les bars se pensaient à New York! Boire du punch dans un galon de gaz! Concours de Wet T-Shirt avec une victoire assurée de Ray après 3 minutes de danse! 
 
-C'est quoi la différence entre le Big Apple en 2005 pis les mines du Chili en 2010? Y'en a pas, les deux étaient plein de mineurs!
+C'est quoi la différence entre le Big Apple en 2005 pis les mines du Chili en 2010? Y'en a pas, dans les deux cas, impossible d'y sortir les mineurs!
 
 Apportez une chiée de sacoche, parce qu'on va danser autour pendant des heures!
 
@@ -81,7 +53,7 @@ Le dance floor, les filles sur les boxes, les gars qui regardent les filles sur 
 
 Pour le plus grand réalisme possible, Votre Honneur, David et moi-même avons déjà commencé à fumer dans le salon tous les soirs pour que vous puissiez sentir la clope pendant 1 semaine après votre passage.
 
-Baby foot, pool, vidéo poker, 
+Baby foot, pool, vidéo poker, pensez-vous vraiment j'ai d'la place pour ça?
 
 - Boire dans un galon de gaz (acheter neuf, mettre du punch dedans)
 - Wet T-Shirt (juste avoir un gilet mouillé ben normal dans mes mains)
